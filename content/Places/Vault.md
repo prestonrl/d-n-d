@@ -1,0 +1,1 @@
+The room that [[Drayax]] wakes in in [[Session 16 Recap]]. Is the vault from [[Bruelethor]] and is very dangerous has 9th level time spell scrolls

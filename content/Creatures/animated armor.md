@@ -1,0 +1,1 @@
+Could be a small [[automaton]]. Was fought and defeated by [[Perrin]] in [[Dungeon outside Shannon]]

@@ -1,0 +1,1 @@
+The vacation home of [[Wilbur]] in the [[Crucible]]

@@ -1,0 +1,1 @@
+Crack and open up when [[lich heart]] are defeated

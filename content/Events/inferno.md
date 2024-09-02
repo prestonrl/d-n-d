@@ -1,0 +1,1 @@
+A mysterious event foreshowed in the note found in [[Dungeon outside Shannon]] by [[Perrin]] that was written by members of the [[Circle of Embers]]. The mysterious ancient figure names [[Atlas]] was also mentioned in the same note.

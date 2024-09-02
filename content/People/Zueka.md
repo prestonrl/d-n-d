@@ -1,0 +1,1 @@
+A scientist of the [[Five Pillars]] that [[Geros]] knew. Was involved in researching [[Hemocraft]] before they disappeared five years ago.

@@ -1,0 +1,1 @@
+Can be paired with [[Tome of Communication]] to get real time notifications when another party member writes a message

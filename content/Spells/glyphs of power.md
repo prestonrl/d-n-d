@@ -1,0 +1,1 @@
+Magic used by [[dark cryomancer]] and [[werewolf]] [[Theodore]] in the fight at [[Levistus' Workshop]]

@@ -1,0 +1,1 @@
+The electrical and magical power that the lights and [[train platform]] run on

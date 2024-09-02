@@ -1,0 +1,1 @@
+[[Theodore]], was [[Finn]]'s boyfriend, but disappeared at some point. The disappearance likely had something to do WITH [[Finn's banishment]].

@@ -1,0 +1,1 @@
+Can roll twice for two attacks for each sword. One sword is the [[Thrall Blade]] which was found in [[Dungeon outside Shannon]]

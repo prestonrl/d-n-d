@@ -1,0 +1,1 @@
+It is depicted as a floating orb of flesh with a large mouth, single central eye, and many smaller eyestalks on top with powerful magical abilities.

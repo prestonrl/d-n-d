@@ -1,0 +1,1 @@
+Levistus's magic ring that infects [[Khione]] 

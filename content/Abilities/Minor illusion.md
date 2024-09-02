@@ -1,0 +1,1 @@
+Cast small spell

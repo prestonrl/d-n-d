@@ -1,0 +1,1 @@
+found by [[Alisha]] and [[Finn]] in the [[Cultist Chest]]. Revealed that one of the four cultists was infected with the disease [[Mutagen 2]] and left alone to go find "one of the four remaining gnomes"

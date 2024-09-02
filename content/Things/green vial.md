@@ -1,0 +1,1 @@
+The [[Mutagen 3]] vial that [[Sylas]] used at the [[Aurum Briar Party]]

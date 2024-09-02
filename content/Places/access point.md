@@ -1,0 +1,1 @@
+computer like terminal used by [[Blind Beholder]] found in the [[Carthian Treatment Center]]  and in the weird elevator thingy by the [[Old Victoris Extraction Site]] 

@@ -1,0 +1,1 @@
+Found on one of the floors of the elevator thingy in [[Carthian Treatment Center]] by the [[Old Victoris Extraction Site]] 

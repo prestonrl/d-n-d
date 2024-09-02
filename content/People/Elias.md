@@ -1,0 +1,17 @@
+Elias Briar
+A sibling of [[Alisha]] and twin of [[Tobias]]
+
+Wanted Alisha to find a [[ring for Alisha to find]]
+
+Is the spy for [[Sylas]]
+
+had [[Elias book]] 
+
+Was shackled to his bed by the group at [[Alisha]]'s recommendation 
+
+Was scared of [[Tobias]] after he passed
+Had [[green magic]] and [[Perrin]] cut off his arm at the elbow
+
+Completely disappeared after falling from his window
+
+[[Reginald]] shot him in the leg during the fight at the party

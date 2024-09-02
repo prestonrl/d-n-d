@@ -1,0 +1,1 @@
+healing spell [[Alisha]] and [[Paladin]] have

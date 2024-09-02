@@ -1,0 +1,1 @@
+Bakery at the [[Briar Estate]] that is run by [[Kara]] and the other reformed [[bandits]] 

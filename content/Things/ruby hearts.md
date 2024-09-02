@@ -1,0 +1,1 @@
+Found by [[Geros]] during the fight agains [[Sylas]] at the weird elevator thing in [[Old Victoris Extraction Site]] 

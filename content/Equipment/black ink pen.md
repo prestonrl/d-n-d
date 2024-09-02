@@ -1,0 +1,1 @@
+What I took after we defeated [[Sylas]] in the elevator place in [[Old Victoris Extraction Site]] 

@@ -1,0 +1,1 @@
+The wolves found in [[Theodore]]'s [[cave]] 

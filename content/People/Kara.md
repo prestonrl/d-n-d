@@ -1,0 +1,1 @@
+A [[firbolg]] lady. A [[bandits]] who [[Alisha]] cut the arm off of which caused the rest to surrender

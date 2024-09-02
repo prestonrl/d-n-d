@@ -1,0 +1,1 @@
+A center in the [[first district]] where [[Jadaya]] was healed

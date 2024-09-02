@@ -1,0 +1,1 @@
+The creature found in the cellar of the tavern in the [[Briar Estate]] by [[Daefaren]] 

@@ -1,0 +1,1 @@
+Room in the [[Turquoise Deep Mine]] had his gas that hurt us.

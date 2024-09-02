@@ -1,0 +1,1 @@
+A caltrop is an area denial weapon made up of usually four, but possibly more, sharp nails or spines arranged in such a manner that one of them always points upward from a stable base

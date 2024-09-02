@@ -1,0 +1,2 @@
+The retconned name of the [[Cultists]] of the [[Circle of Embers]] that was reanimated by [[blood curse of the fallen puppet]] or [[Blight of the Fallen Puppet]]in the [[Dungeon outside Shannon]] by [[Sylas]] [[skeleton]] 
+Seen at the [[Cryomancer's Keep]] final battle

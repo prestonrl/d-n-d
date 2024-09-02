@@ -1,0 +1,1 @@
+rope hanging down the wall of the [[Cryomancer's Keep]]

@@ -1,0 +1,1 @@
+The ring that [[Flicker]] of the [[Circle of Embers]] had [[Reginald]] examining when Reginald was first introduced in the tent on the [[Cryomancer's Keep]]

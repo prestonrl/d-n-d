@@ -1,0 +1,1 @@
+Spell cast by [[Tizlin]] to cause us to be only able to tell what we believe to be true

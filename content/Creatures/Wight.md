@@ -1,0 +1,1 @@
+medium sized undead creature found in that elevator place by the [[Old Victoris Extraction Site]] 

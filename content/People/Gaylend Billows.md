@@ -1,0 +1,1 @@
+The [[elf]] running [[Blackbridge Antiques]] in [[New Victoris]] at the [[Maw]] and maybe the same guy is in all the other Antique shops

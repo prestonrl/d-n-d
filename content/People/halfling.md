@@ -1,0 +1,1 @@
+infected by [[Mutagen 2]] and has a batman grappling winch found in the [[Lightweight Division Workshop]]

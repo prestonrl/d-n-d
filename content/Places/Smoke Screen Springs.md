@@ -1,0 +1,1 @@
+I ran by it to get to the [[cultist with the lens]] with the [[gun]] on top of the wall

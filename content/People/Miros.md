@@ -1,0 +1,1 @@
+[[Geros]] cat that stays tucked under his trunk. Seen in the [[Astral Plane]] when Geros had a dream sequence talking about gifts.

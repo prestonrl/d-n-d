@@ -1,0 +1,1 @@
+in the [[Arch Cryomancer's Tower]] with a table and 12 chairs with an old map of the keep and surrounding areas on the table

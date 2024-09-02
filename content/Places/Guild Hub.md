@@ -1,0 +1,1 @@
+Hall for other guilds to set up shop when they come to town at the [[Cryomancer's Keep]]

@@ -1,0 +1,1 @@
+bartender at the [[Frosted Foam Tavern]] who is a [[Tabaxi]] and is so fluffy you can't see her eyes

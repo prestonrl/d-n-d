@@ -1,0 +1,1 @@
+Where [[Trevor]] says [[Sylas]] will revive now that he and the [[Blind Beholder]] society have control of the [[phylactery]]

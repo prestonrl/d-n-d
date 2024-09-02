@@ -1,0 +1,1 @@
+unlocked the metal door in the [[Turquoise Deep Mine]] that lead to the bear

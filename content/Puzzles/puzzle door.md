@@ -1,0 +1,1 @@
+The door at the [[monastery]] that lead to the bell tower. The puzzle solution involved numbers lining up with letters to spell open, I think?

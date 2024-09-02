@@ -1,0 +1,1 @@
+the [[crystal heart]] from the chest of [[Arch Cryomancer]] that [[Geros]] cracked with divine smite

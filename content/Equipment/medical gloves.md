@@ -1,0 +1,1 @@
+Bought by [[Perrin]] in [[Fern's General Goods™️]] for a couple of silver

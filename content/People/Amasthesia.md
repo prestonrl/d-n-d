@@ -1,0 +1,1 @@
+One of the two lesbians who run the [[apothecary]] in [[Shanon]] with her partner [[Tristy]]

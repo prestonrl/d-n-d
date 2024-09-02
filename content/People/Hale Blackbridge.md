@@ -1,0 +1,1 @@
+Leader of the [[Archaic Circle]] seemingly connected to the [[ruins]]

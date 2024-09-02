@@ -1,0 +1,1 @@
+expensive mushrooms that can be used to make a potion to refill spell slots
