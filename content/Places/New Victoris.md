@@ -12,4 +12,6 @@ Has a several hundred feet tall wall surrounding most of the city
 
 The city has 26 districts
 
-Main draw is the gold sorcerer phenomenon that is mostly in the [[Crucible]] 
+Main draw is the gold sorcerer phenomenon that is mostly in the [[Crucible]]
+
+The guards of the city are hired guards from the [[Briar Estate]]

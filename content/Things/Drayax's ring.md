@@ -14,3 +14,5 @@ It sparks
 [[Fake Drayax]] appeared when this ring was used
 
 I gave the ring to [[Daefaren]] who attuned to it and lost some fingers and died. I then promptly took it back or he would keep trying to attune to it.
+
+[[Flicker]] kidnapped [[Reginald]] to look into this ring about [[Bruelethor]]

@@ -1,3 +1,7 @@
+The dungeon that was containing [[Sylas]] due to the [[Carthion Containment Protocol]]
+
+[[Circle of Embers]] entered this place as a staging area for their attack on [[Shanon]], supposedly unaware it contained [[Sylas]]
+
 Entrance was hidden under a waterfall near the [[expansion district]] of the town of [[Shanon]].
 
 Several intimidating looking rooms with sigils on the ground and laboratories full of black powder and intricately detailed metalwork.

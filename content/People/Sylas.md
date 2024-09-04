@@ -7,7 +7,7 @@ Also found in the [[Order of the Mutant]] from [[Occult Activity of Old Victoris
 
 [[dire bear]]'s cyborg arms have his name engraved
 
-a lich 
+a lich who was at one point a mortal
 
 Fought again in [[Old Victoris Extraction Site]] weird elevator place used [[Tobias]]'s death to rebuild his own body
 
@@ -33,6 +33,8 @@ Claims he tried to stop what happened to [[Old Victoris]]
 Wishes for [[Silence]] 
 
 Says he is here to usher in a new age 
-Has a partner that [[Perrin]] has met
+Has a [[partner]] that [[Perrin]] has met (its [[Atlas]])
 
 Made eye contact with [[Perrin]] as he died at the party.
+
+Confirmed to be bisexual and probably into [[Atlas]] 

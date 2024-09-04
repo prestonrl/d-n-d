@@ -8,3 +8,5 @@ Trained the [[puppies]] to be useful trackers
 Is an accomplished baker and cook that can infuse magical healing into food items
 
 played by Isabella
+
+From the middle of the forest

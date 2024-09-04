@@ -20,7 +20,7 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - mahogany ammunition crate
 - 5 turquoise peices from the deep mine
 - copper key from deep mine
-- protoype rebreather
+- prototype rebreather
 - map of [[Bruelethor]]
 - 3 [[Adamantium arrows]] (now 2)
 - [[Drayax's ring]]
@@ -30,6 +30,10 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - 200 ft of rope
 - A [[black ink pen]]  from elevator fight with [[Sylas]] 
 - Candle wax [[earplugs]]
-- [[crystal tipped arrow]] and quiver 
+- [[crystal tipped arrow]] and quiver (used 1)
 - two [[mushrooms]] 
 - [[sparkling mushroom]]
+- [[red cloth crates]]
+- [[written slabs of ruins]]
+- [[lightweight division schematics]]
+- 
