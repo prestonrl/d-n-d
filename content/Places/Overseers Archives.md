@@ -1,0 +1,1 @@
+A district of [[New Victoris]] that is on the same level as the [[New Victoris Palace]] 

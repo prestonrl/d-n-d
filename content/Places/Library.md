@@ -1,7 +1,7 @@
 Located in the town of [[Shanon]].
 Destroyed by [[dragon]] on [[Festival]] night
 
-Head librarian [[Minerva Ashblossom]]
+Head librarian [[Minerva]]
 Possibly [[Bubbles]] worked here I think?
 and [[Uther]]? Maybe?
 

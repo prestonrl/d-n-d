@@ -1,0 +1,1 @@
+Alternate name for the [[Golden Vault]]

@@ -1,0 +1,1 @@
+The [[half elf]] that lets [[Madeline]] and [[Cultbusters]] up their tower to the [[New Victoris Palace]]

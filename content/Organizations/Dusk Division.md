@@ -1,0 +1,1 @@
+The sub-section of the [[Golden Vault]] that uses [[changeling]]s to gather information

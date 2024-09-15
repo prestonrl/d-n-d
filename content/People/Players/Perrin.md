@@ -39,3 +39,5 @@ Backstory:
 
 Appearance:
 - Height: 3ft 6in
+
+Has survived 4 Dragon attacks now
