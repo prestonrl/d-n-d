@@ -1,0 +1,37 @@
+ - I awake to rain in the tavern
+ - I see a table with a dark stain on it that no one is sitting on (it is the stain of [[Daefaren]])
+ - I go to the bakery [[Your Money or Your Appetite]]
+ - See party with baker [[Kara]] with one arm from the [[bandits]]
+ - I see [[Greg]], have to tell him a knock knock joke to get him to let go
+ - A guard comes in and gives me a letter that came from [[Trevor]]
+ - It is a [[Sylas note]] from [[Sylas]] that tells me to stand down
+ - [[Aben]] looks healthy and not green at all
+ - It is taboo to go to [[Old Victoris]], it is completely abandoned
+ - There is not a trace of [[mutagen]] on him
+ - [[Aben]] was the plan for the [[Blind Beholder]] to take off a [[phylactery]] 
+ - [[Sylas]] shatters a vial to revive, and he has a stash as his [[phylactery]]
+ - [[Aben]] shows us the ash of [[Daefaren]] in a vial on his belt
+ - There are heartbeats coming from the office in the mansion, maybe the tower and [[Lucius]]
+ - Magical fissures, wont start until all the guest arrive, about 2 hours into the [[Aurum Briar Party]]
+ - We leave [[Your Money or Your Appetite]] and walk back
+ - [[Aben]] tells me he used [[Daefaren]]'s blood to be healed 
+ - Aben's books the [[Order of the Ghost Slayer]]
+ - We take long rest at the tavern
+ - [[Reginald]] cuts the stained table from [[Daefaren]] and takes it and fixes the table
+ - [[Aben]] gives me the ashes of [[Daefaren]] and I give it back 
+ - I tell [[Damien]] that about my invite
+ - I cast [[disguise self]] and we set up an appointment with [[Trevor]] at 3 pm the next day to talk about the letter that I got
+ - [[lich heart]]s have 2 hour intervals.
+ - [[Reginald]] asks [[Damien]] for weapons privileges for the party and gets them
+ - [[Tizlin]] and the girls get gowns for the party
+ - [[Reginald]] and [[Alisha]] go to the [[Aurum embassy]] and look for [[Brazia]]
+ - [[Reginald]] talks to wizard [[Xavier]] (who knows [[Alisha]]) that is playing with a fidget [[puzzle cube]] and helps him with it
+ - There are signatures in the garden. 
+ - [[Xavier]] knows [[Greg]] and was the one that put him into that chest.
+ - [[Alisha]] finds a pile of ash with a small golden pin on it. It was [[Brazia]]'s pin. [[Sylas]] took her form, and now is a [[changeling]].
+ - They come back and tell [[Tizlin]] and show the pin they found
+ - I take care of [[Bailey]]
+ - [[Jadaya]] trains the [[puppies]] more
+
+Previous Session: [[Session 29]]
+Next Session: [[Session 31]]

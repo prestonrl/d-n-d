@@ -1,0 +1,33 @@
+- [[Jadaya]] wakes up to the 3 dead guards and the dead buttery rats of the [[rat problem]]
+- She finds [[Reginald]] outside by the butter [[statue of a beholder]] looking at the map he got
+- He shows her the [[time stop pocket-watch]]
+- They go in the [[Blind Beholder Briar Outpost]] and find us in the tea room
+- [[Geros]] finds the ice spell books [[Mausoleum of Levistus]] don't work anymore and turn to ash when ripped out
+- [[Daefaren]] has disappeared 
+- I give [[Daefaren]] [[Drayax's ring]]
+- It is the year [[4879]] 
+- [[Daefaren]] attunes to the ring and dies
+- [[Geros]] spares the dying and saves [[Daefaren]] who loses his left ring finger
+- [[paladins]] pray and find there is no god that lives in the northwest 
+- [[Daefaren]] looses another finger
+- I take the ring [[Drayax's ring]] back and put it in my [[Bag of Holding]]
+- We take the [[train]] to a greenhouse at the next train station in the south [[Carthian Treatment Center]]
+- [[Geros]] finds more [[moss]]
+- We enter a room dedicated to all [[Hemocraft]]
+- [[Daefaren]] drinks a vial of clear liquid that was in a blue glass
+- It gives advantage on one check and lasts one hour
+- We find a list of all spells that have been banned
+- [[Geros]] knew a [[Zueka]] who did blood magic, scientist of the [[Five Pillars]] who disappeared 5 years ago. 
+- I go to the medical bay called [[Carthian Treatment Center]]
+- I take 3 [[Greater healing Potion]]
+- Those deemed untreatable will be exiled 
+- I take that Spell scroll for [[spell command]] 
+- Check date on the medical bay documents 4581
+- [[Reginald]] blows down the brick wall door and finds former agency [[access point ]]
+- Geros breaks into museum dedicated to ancient city and object tainted by shadowy magic
+- City was swallowed up and letters were twisted probably from the [[dark divide]]
+- We found a grand library full of magical books
+- I want to invesitgate Abens [[plan sigma]] which was to take contaminated person to this location where we are at
+
+Previous Session: [[Session 21]]
+Next Session: [[Session 23]]

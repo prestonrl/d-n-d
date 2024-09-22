@@ -1,0 +1,45 @@
+- missing [[Jadaya]] , [[Daefaren]], [[Geros]]
+- [[Reginald]] starts combat with [[Mutagen 2]] infected guards in the [[Aurum Briar Mine]]
+- I kill one guard with my [[Thrall Blade]]
+- Hear a lot of clicking and pitter patter coming towards us
+- [[Alisha]] does 44 damage to a guard killing it
+- I take out another guard and hear more pitter patter of swarm of rats ([[rat problem]])
+- [[Aben]] has pain in head and hears [[voice]]s from the rubble ramp
+- I cast speak with small animals and just hear rats shrieking 
+- A rat bites me and breaks skin 
+- [[Reginald]] butters us up 
+- 3 swarms of rats 
+- Rats killed
+- [[Reginald]] and [[Alisha]] find a silver with [[Aurum]] ruby in the center from a noble 
+- The elevator comes down with knights who are in peak condition and two boys. 
+- They think we killed the guards and are under orders to get us due to breaching containment
+- I run and get clotheslined by the caved in support and rumbling starts
+- We are trapped in the mine
+- I pass all con saves for the rat bite which looks bad but isn't infected 
+- We reach 3 way fork
+-  we go up and to the left dead end, go back and go straight 
+- We reach large room with a statue of a spherical creature with eye stocks coming out it is a [[beholder]] 
+- [[Aben]]'s head humming is much much louder
+- We found a secret door behind the statue that looks like stone wall but isn't 
+- I apparently saw a smaller [[statue of a beholder]] in [[Dungeon outside Shannon]] 
+- I had help with the [[apothecary]] crew on this one
+- When I poke it it glows blue
+- We use [[Reginald]]'s butter to rub on all they eyes from our clothes and the eyes illuminate 
+- the secret door opens to [[Blind Beholder Briar Outpost]]
+- 3 doorways open
+- We go thorough the middle one
+- See some [[automaton]] like in the first dungeon and the lights are like my [[Magic Lantern]]
+- And tools on tables and chest and ruby lock two locked doors and another secret door to the right
+- Chest is property of [[Archaic Circle of Research Hall]] 
+- [[Reginald]] found a map of the [[Labyrinth]] of everything
+- tunnels under [[Cryomancer's Keep]] and [[Dungeon outside Shannon]] are all connected with these tunnels
+- see different markings showing the quarantine zone 
+- I enter left room museum with artifacts from [[Old Victoris]] and some of them had been petrified and turned to stone 
+- All the artifacts are about the [[Ember Guard]]
+- The [[Circle of Embers]] is a sect of what was formerly the [[Ember Guard]]
+- Need to deal with the chest with the ruby lock use the ruby key in my bag of holding and see silver engraved [[time stop pocket-watch]]  with intense magic coming off of it, very powerful 
+- [[Alisha]] finds ruby ring maybe the [[ring for Alisha to find]] 
+- [[Aben]] reads [[Abyssal]] and it says time stop on the pocket-watch
+
+Previous Session: [[Session 19]]
+Next Session: [[Session 21]]

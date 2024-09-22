@@ -15,3 +15,5 @@ The city has 26 districts
 Main draw is the gold sorcerer phenomenon that is mostly in the [[Crucible]]
 
 The guards of the city are hired guards from the [[Briar Estate]]
+
+[[Atlas]] says that this city was a pet project by him and [[Sylas]]

@@ -1,0 +1,49 @@
+- Three [[Cultists]] walk in who I don't recognize and then  [[Flicker]] enters after them
+- I talk to [[Flicker]] who says [[New Victoris]] is going the same way as [[Shanon]] and [[Cryomancer's Keep]] 
+- [[Flicker]] asks me to just surrender and it would be easier
+- I say we will stop them
+- He takes a his [[Embers' Draconic Wildshape]] and the other three hop on his back
+- [[Reginald]] walks into the antique shop with [[Seraphina]] having taken the train [[Moyra]] showed him where we went
+- [[Reginald]] sees the dragon fly off and he enters the tavern with [[Seraphina]] and [[Geros]] almost kills him by hugging him
+- [[Madeline]] figures out [[Aben]]'s gun and shoots the floor 
+- [[Reginald]] says he shot [[Elias]] in the leg and helped the civilians leave the building during the [[Sylas]] fight
+- He introduces to [[Seraphina]] 
+- [[Geros]] tells him about us using his tab to pay for the room and [[Jadaya]]s drink 
+- I ask how [[Seraphina]] met [[Reginald]] and they met at a dig site
+- [[Aben]] is gone
+- [[Jadaya]] realizes maybe there wasn't an actual item fake [[Brazia]] promised her and gift of gab or something
+- [[Jadaya]]'s sword is for a [[Paladin]]
+- [[Geros]] gives the [[puzzle cube]] to [[Reginald]]
+- I ask [[Reginald]] about the ancient sword I got from the [[Aurum]] thingy
+- light [[shadowfell]] stuff on the sheath and when unsheathed it screams: [[sword of incomprehensible screaming]] 
+- We go to the guard tower and they have some hires from the [[Briar Estate]] they tell us about a potion shop being set up next door 
+- Main draw to [[New Victoris]] is the phenomenon gold grafted into skin and get gold engraved on skin for magic the [[Crucible]] is where this happens the most
+- [[Tarion]] is our next district to go through to get to the [[Crucible]] 
+- I untie [[Bailey]] and we head in
+- [[Geros]] runs to the fountain for some reason [[Madeline]] is sitting there making her map
+- The fountain is the final resting place for the [[Acheron river]] which is being polluted by the industrial district 
+- [[Geros]] plans to fix this river as a quest
+- We get the map of [[Tarion]] from [[Madeline]] and we head to [[One Man's Trash]] the thrift store nothing of interest
+- [[Alisha]] gambles at the cup game place and looses money and then plays again and eventually breaks even with [[Jadaya]] egging her on creating a new gambling addict 
+- me and [[Reginald]] go to the [[Umber Gardens]] and look at mushrooms
+- I buy two [[mushrooms]] with a gold that [[Reginald]] spots me 
+- I get one of the [[sparkling mushroom]]s
+- [[Geros]] [[lay on hands]] and pushes teeth back into the mouth of some guy at the bar
+- There is an [[orc]] guarding a door at the back of the tavern that is a fight club
+- The bar is called [[Fisticuffs]] they tell [[Geros]] the [[Historical Society]] across the street is unsavory
+- [[Geros]] thinking this is about food breaks in and goes up the stairs. The historical society is all fake and piece of shit and has a flat earth model
+- Two weathered criminals and one sorcerer is there and a woman tied up in a chair. They have archeological contraband and [[mushrooms]].
+- I shoot two arrows at the sorcerer 
+- [[Seraphina]] finishes the sorcerer with a machete 
+- It is [[Tristy]]! I untie her she says [[Amasthesia]] is deeper in the city 
+- She hasn't seen anyone else from [[Shanon]] 
+- Tells us to come to them if we need healing and she turns into a raven and flies away
+- [[Geros]] asks where to sell all his stuff and tells the orc guard of the door what a robot is
+- [[Reginald]] takes the sorcerer and thugs to the jail 
+- [[Reginald]] is lock picking the safe in the historical society to see if he can get the deed
+- [[Reginald]] decided we will set up [[Cultbusters HQ]] here in the basement and then make this historical society accurate 
+- I see a newsperson outside waving a paper and shouting about the [[northern district of New Victoris]] being under attack. I buy paper for 2 copper.
+- the northern district was set ablaze last night set 
+
+Previous Session: [[Session 33]]
+Next Session: [[Session 35]]

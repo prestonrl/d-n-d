@@ -4,7 +4,7 @@ Perrin helped set up for a festival and did odd jobs here. [[Dungeon outside Sha
 
 Was destroyed on [[Festival]] night by [[Cultists]] [[Archdruid]]s, and a [[dragon]].
 
-Also known as Shenandoah
+Also known as [[Shenandoah]]
 
 Town includes:
 - [[Yew tavern]]

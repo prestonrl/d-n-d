@@ -1,0 +1,54 @@
+- It is 3pm It is cloudy and midday with a light drizzle
+- I am deep inside [[Trevor]]'s library where I meet with him and show him [[Sylas note]]
+- I tell him to check on the scribe that was writing the invite 
+- I ask why the [[Blind Beholder]] can set limits on magic, it is classified of course
+- I ask what the [[Blind Beholder]] plan is and he said they expect [[Aben]] to complete his mission and get the [[phylactery]] to him and he will take care of the rest
+- We go to [[Jadaya]] who describes her character and the dancing and singing dogs
+- [[Aben]] describes his [[Blind Beholder]] cloak and has a green scar on his neck
+- [[Tizlin]], [[Reginald]], and [[Alisha]] all describe their characters
+- It is now 5pm 
+- [[Jadaya]] is all ready in the [[Aurum Briar Party]] as an entertainer
+- [[Tizlin]] enters the party, then [[Alisha]], and then [[Reginald]] 
+- [[Xavier]] Trinkets enters with a large hat
+- [[Reginald]] sees a soft ripple as a server with drinks go by
+- [[Alisha]] hears whispering "Now introducing the herald of the Blind Betrayer" and hears a heartbeat
+- [[Tizlin]] sneaks under the piano to tell [[Jadaya]] how to get the weapons from the dress
+- It is 6pm
+- [[Reginald]] gives [[Alisha]] the [[time stop pocket-watch]]
+- [[Alisha]] follows the dire wolf [[puppies]] to the kitchen and hears the thump-thump coming from the downstairs
+- [[Tizlin]] feeds [[Jadaya]] ribs while she performs music
+- [[Moyra]] the front desk lady for [[Trevor]] sees [[Reginald]] having a panic attack and asks if he is okay
+- [[Reginald]] finds out that his family may have gotten an invite to the party
+- The [[lich heart]] [[Alisha]] finds has a specter with clothes similar to [[Aben]] so is from the society of [[Blind Beholder]]
+- The specter is the [[herald of the Blind Betrayer]]. Has relation to Blind Beholder
+- Says he will introduce [[Alisha]] to his master [[Sylas]], who he will introduce to the rest of the [[guest list]]. 
+- [[Alisha]] is attacked and then takes care of the [[herald of the Blind Betrayer]] but we hear a ominous giggle 
+- A shriek goes through the house and thunder and then a yelp from the dining room
+- There is a woman in a victorian dress and hair tied up in a bun, it is [[Seraphina]]
+- [[Reginald]] has a panic attack because that is his significant other
+- Then he goes and hugs [[Seraphina]] and explains his absence and asks her to marry him using the [[engagement ring]]
+- Two shadowy figures approach the front door: Sir [[Chester]] Hightower enters the and Sir [[Ted]] Hawthorn
+- Me and [[Aben]] use my [[grappling hook]] to get onto the greenhouse and we enter floor 2 and look down the dining room
+- [[Ted]] is here from [[Trevor]]'s invitation and said they found something 
+- [[Reginald]] tells [[Ted]] about the [[lich]] and things about to go down
+- [[Ted]] talks about digging deep enough to get to the [[Blind Beholder]] stuff
+- [[Alisha]] tells [[Jadaya]] and [[Tizlin]] about what is going on, they go to leave and are requested to join the dinner by the host [[Sylvia]]  and [[Tizlin]] says FUCK YOU
+- [[Tizlin]] causes a scene and [[Reginald]] casts sleep
+- [[Xavier]] counters the commands 
+- [[Aben]] and me check the [[Lucius]] room and hear a thump thump 
+- We see [[Elias]] in chains and a specter of [[Tobias]] behind him, Which [[Aben]] tells me is [[Sylas]]
+-  I run around looking for [[Alisha]], [[Reginald]], and [[Jadaya]] telling them we found [[Sylas]]
+- [[Jadaya]] teleports [[Tizlin]] who had been kicked out, and brings her back 
+- [[Chester]] keeps [[Reginald]] from joining the party
+- [[Aben]] is still invisible
+- [[Tizlin]] kicks the door in and hits [[Elias]] 
+- I cast fear and [[Elias]] sees [[Tobias]] 
+- [[Reginald]] tells [[Sylvia]] about the [[lich]] and [[Klaus]] coughs, she calls off the guard
+- [[Klaus]] is not sick with [[mutagen]] 
+- [[Aben]] uses sedative with the specter and shoots the [[lich heart]] and [[Aben]] is no longer invisible
+- [[Aben]] hears [[voice]] saying I am the [[Herald of the Dragons Consort]] 
+- [[Tizlin]] cures wounds
+- [[Alisha]] does the same and says, "you may rest now" which took care of [[Tobias]]
+
+Previous Session: [[Session 30]]
+Next Session: [[Session 32]]

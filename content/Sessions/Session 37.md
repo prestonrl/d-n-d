@@ -1,0 +1,80 @@
+ - [[Flicker]]'s dragon head dissolved and he has a massive gash on his human form. He is sprinting up to the [[apex of the world]]
+ - [[Jadaya]] tries to shoot him in the back to paralyze him, but misses
+ - [[Reginald]] makes his shot in [[Flicker]]'s back as does [[Seraphina]] with ray of frost
+ - [[Geros]] picks up [[Alisha]] to throw (yeet) her to [[Flicker]]
+ - I [[grappling hook]] him to yank him back to him and drag him down the 90 feet of stairs wearing down his mask/face
+ - [[Geros]] stabilize him so we can question him
+ - [[Aben]] uses medical vials to slow the rate of decay 
+ - [[Geros]] puts a sack over his head and  [[Aunt Roberta]] carries [[Flicker]] to the [[Cultbusters HQ]]
+	 - Around this point [[Jadaya]] and [[Perrin]] are replaced by [[changeling]]s that have their complete memories
+ - [[Geros]] loots [[Flicker]] who has a leather bound spell book with classical druid literature and the [[electric rail cannon]] 
+ - The guards of [[New Victoris]] are the guards from [[Briar Estate]]
+ - [[Jeff]] the guard talks with [[Alisha]]
+ - The lens of [[Flicker]] was a high powered lens with a crack that works as a crosshair is a scope
+ - [[Geros]] gifts the [[Cultbusters]] a bunch of stuff he has collected.
+	 - I got:
+		 - [[red cloth crates]]
+		 - copy [[written slabs of ruins]]
+			 - in [[Abyssal]]
+		- copy [[lightweight division schematics]]
+			- Geros has a copy too
+- [[Geros]] gives more stuff to [[Wilbur]] at [[Willbur's Ward]] to make magical items
+- When [[Flicker]] wakes up the [[Cultbusters]] and the [[changeling]]s interrogate  him
+	- [[Flicker]] says they were not in the [[Dungeon outside Shannon]] on purpose and that it was a nice coincidence
+	- Confirms that [[Atlas]] and [[Sylas]] knew each other and implies the two statues in [[Dawntrail]] are [[Atlas]] and [[Sylas]] 
+	- The statue of [[Sylas]] has a blindfold like the traditional justice statue
+	- Asks if we know what happened in [[Old Victoris]] 
+		- the [[changeling]] of [[Perrin]] gives away that the [[Blind Beholder]] has redacted most information about this
+		- Flicker surprised that the [[Blind Beholder]] is still around and says they were part of the guard of [[Old Victoris]] as its underground Intelligence agency
+	- Old Victoris was [[silence]]d, only [[Sylas]] and [[Atlas]] remained the [[King]] and [[Crown]]
+	- [[Sylas]] is [[King]], [[Atlas]] is [[Crown]]
+	- [[Geros]] oath is to [[King]] and [[Crown]]
+	- [[Atlas]] is a [[great wyrm]]. No one knows how long it takes to become a great wyrm, older than ancient wyrms unfathomably old, mortals can not count it
+	- The [[primal divide]] and [[dark divide]] are even older than [[Sylas]] and [[Atlas]]
+	- Says a false monarchy is in place in [[New Victoris]] is not yet aware of their presence
+	- [[Sylas]] is bi
+	- [[Atlas]] beyond the concepts of sexuality 
+	- [[Sylas]] was at one point a mortal. 
+	- [[Sylas]] and [[Atlas]] met at [[Atlas' reflection]]
+	- Sylas and Atlas tried to stop the [[calamity]] from happening and now are convinced it is best to finish the job that had been started by it
+	- The job is the [[silence]] 
+	- [[Atlas]] has been working on amassing the old guard that used to patrol the city of [[Old Victoris]], having to started with new people 
+	- The members of the [[Circle of Embers]] plans to die with the rest of us in the [[inferno]]
+	- Says the [[primal divide]] and [[dark divide]] are imminent death, so they are embracing it
+	- Believe they are mercy killing the world before the divides do
+	- very nihilistic  
+	- Wont give up location of the organization
+	- [[Geros]] casts command to answer [[Aben]] question
+	- [[Aben]] asks the location of the [[Circle of Embers]]
+	- [[Bruelethor]] is the ancestral home of dragons, and then [[dragonborn]]s kicked them out
+	- Says we saw effects of the [[dark divide]] at the [[Cryomancer's Keep]] where [[Levistus]] was using [[shadowfell]] magic
+	- All 10 [[Archdruid]]s are here in [[New Victoris]]s and the remaining 9 are all more powerful than [[Flicker]]
+	- [[Forest of Ancient Gods]] or [[City of Wisps ]] will be the next target after [[New Victoris]]
+	- [[Circle of Embers]] was completely oblivious to the [[mutagen]]
+	- They stake out and take out infrastructure to create as much damage
+	- two organization where keeping peace in [[Old Victoris]]
+		- [[Ember Guard]]
+		- [[Blind Beholder]]
+	- He doesn't know the names of the other [[Archdruid]]
+	- [[Drayax]] disappeared from the [[ice]] in [[Cryomancer's Keep]]
+	- [[Aben]] informs [[Flicker]] that [[Sylas]] may not be on their side
+	- [[Atlas]] worked on recruiting for the cult until he could take over [[Bruelethor]]
+	- Residual [[petrification]] on the people left at the  [[Old Victoris Extraction Site]] was less intense than the petrification in the city
+	- [[10th, 11th, and 12th level spells]] [[Aben]] is the only one who knows about them, every one else hard cap at 9 
+		- Those are the spells the blind beholder tries to eliminate , shit you cannot counter spell
+	- [[Geros]] negotiates to meet with [[Atlas]] at a neutral place
+		- Told to schedule this with the [[Crown]]
+- [[Flicker]] turns into a tiny lizard/salamander and runs away
+- [[Geros]] gives [[Reginald]] the petrified person
+- [[Aben]] asks [[Reginald]] to translate the [[written slabs of ruins]] and they are several thousand years old
+	- given to [[Ted]] to look into
+- [[Reginald]] and [[Seraphina]] want to adopt a kid from the [[orphanage]] not realizing how insane that idea is
+- I go with[[Aben]] to the [[Umber Gardens]] to help him purchase [[poison mushroom]] to make potions
+- I spot [[Aben]] 10 gold to buy the [[poison mushroom]] 
+- The quest board is empty 
+- [[Jadaya]] takes the psych mushrooms 3 bites and starts to journey on the roof on [[Cultbusters HQ]] as the stars come out.
+- [[changeling]] [[Perrin]] thinking like [[Perrin]] wants to join in and eats [[mushrooms]] not fully processing they have never done them before
+- [[Jadaya]] and [[Perrin]]'s [[changeling]] forms show to the group as they begin the first hour effects of tripping.
+
+Previous Session: [[Session 36]]
+Next Session: [[Session 38]]

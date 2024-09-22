@@ -1,7 +1,9 @@
 Sylas Carthion. Ninth high Overseer of Victoris [[Old Victoris]]
 The [[skeleton]] from [[Dungeon outside Shannon]] who had the [[Mutagen 3]] vial in his chest cavity
 
-Was able to reanimate the dead body of [[Flicker]] or I guess [[Crackle]]
+[[King]] of [[Old Victoris]]
+
+Was able to reanimate the dead body of [[Crackle]]
 
 Also found in the [[Order of the Mutant]] from [[Occult Activity of Old Victoris]] book
 
@@ -35,6 +37,7 @@ Wishes for [[Silence]]
 Says he is here to usher in a new age 
 Has a [[partner]] that [[Perrin]] has met (its [[Atlas]])
 
+
 Made eye contact with [[Perrin]] as he died at the party.
 
-Confirmed to be bisexual and probably into [[Atlas]] 
+Confirmed to be bisexual and married to [[Atlas]] 

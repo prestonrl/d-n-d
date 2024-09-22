@@ -1,0 +1,51 @@
+- [[Geros]] explores the Stables in [[Tarion]] sees oxen like the ones at [[Cryomancer's Keep]] 
+- The buyer of this oxen was no show, [[Geros]] buys for discount, [[Aunt Roberta]]
+- We plan rooms to renovate the [[Cultbusters HQ]] 
+- [[Geros]] goes to [[Fisticuffs]] and asks for more quests confusing the guard 
+- I investigate the newspaper from the [[Victorian Chronicle]] about the [[northern district of New Victoris]] death toll thousands, Infrastructure to stop fire failed, under investigation about inside job seeing dark shapes behind the clouds 
+- I go to [[Tarion]] Hall and say I have info about the fires and tell them to look for the [[Circle of Embers]] with red robes
+- [[Reginald]] is investigating something [[Seraphina]] found, a piece of a weapon in the past
+- He goes to [[Blackbridge Antiques]] and talks to [[Gaylend Billows]] who appears to be the same from the other antique shop he finds its a weapon from the past and hears ringing in his ears
+- It takes a while to go from [[Tarion]] to the [[Crucible]] 
+- [[Reginald]] takes [[Seraphina]] on a date to the bakery with the [[firbolg]] lady [[Kara]]
+- We walk into the Foam Marrow bar
+- Then we go to bakery and find [[Reginald]] with [[Madeline]] and the new map of the [[Crucible]]
+- Reginald takes [[mushrooms]] and drinks alcohol 
+- We then go to [[Wilburs Vacation Home]] and find a little [[goblin]] creature who says the last time [[Wilbur]] was there was 4 days ago
+- There are six dozen goblins that come to defend the honor of the master of the house against [[Geros]] being dumb
+- They say the last place he went was the [[Weirdatorium]] next door
+- We get a riddle from the doors and [[Geros]] takes damage from trying to break it down, but then solves the puzzle
+- We see an empty round tower 150 up is a ledge with a door
+- I go back to get [[Bailey]] for the [[horseshoes of spider climbing]] and tell [[Reginald]] where we are
+- We go back and spider climb [[Bailey]] and put up my rope
+- We go through a slightly magical door that takes us up the next level
+- The keyhole is darkness
+- [[Reginald]] figures out the [[meta puzzle]]
+- We open the door to black inky darkness 
+- Silhouette of a figure deeper in the room 
+- We all see the figure that would scare us the most
+	- [[Reginald]] walks into the darkness and [[Seraphina]] turns into a [[changeling]] of [[Golden Vault]]
+	- [[Alisha]] sees [[Klaus]] with black empty eyes
+	- [[Perrin]] I walk in and my party disappears and see [[Atlas]]
+	- [[Geros]] sees no one there and sees a pile of dust
+- [[Geros]] spreads [[caltrop]]s and spikes 
+- I try to talk to [[Atlas]] and and their speech is garbled. I shoot a [[crystal tipped arrow]] that dispels magic.
+- We see a withered purple creature with tentacles, it is a [[mind flayer]] with gold across its face
+- [[Geros]] asks who it is and why its here, it says it is the keeper of the tower. 
+- [[Geros]] commands surrender and it shrivels up into a [[crystal ball]] and Geros picks it up, It can hold an illusion spell
+- I go to door that leads to top of cavern and there is a cave goblin with milky white eyes and an [[elf]]. The goblin is [[Wilbur]].
+- We convince [[Wilbur]] to go with us because we promise to spend money and he jumps out the window to go to the store
+- I take [[Bailey]] and ride down the outside of the tower
+- We all go to [[Willbur's Ward]], there is a machine that has panels and dials and looks like [[Blind Beholder ]]
+- [[Wilbur]] takes magical items for vouchers to make new magic items
+- [[Geros]] tries to make a magical maul
+- [[Reginald]] shows the piece of the weapon making his head ring, he puts it together with the [[sword of incomprehensible screaming]] 
+- [[Geros]] dumps out his icy armor for a magical item voucher
+- [[Bimuna heart]] is given by [[Geros]] to have [[Wilbur]] infuse into his maul 
+- [[Reginald]] gets a [[Tome of Communication]] with an [[update lens]] with the help of [[Geros]] giving magic items
+- I give [[Wilbur]] [[Drayax's ring]] for a very rare item voucher and decide to do some research (look into Bow of Four or Oathbow)
+- [[Geros]] gives [[Wilbur]] the number for his [[Tome of Communication]]
+- We go back and take a long rest
+
+Previous Session: [[Session 34]]
+Next Session: [[Session 36]]

@@ -1,0 +1,64 @@
+- [[Aben]] sits at the tavern at the [[Briar Estate]] in a flashback two days before the [[Aurum Briar Party]] 
+- Goes over medical notes because his attempt to heal himself failed. He is studying [[Hemocraft]] to find a way to stop [[Sylas]] and to cure himself
+- [[Medical notes]] written by [[Lucy Westerna]] and should have been destroyed
+- Fast forward to [[Aben]] escorted off the train by two temporal [[automaton]]s  these ones have internal working of gold that the ones we saw previously did not have
+- Taken to an unknown location and [[Trevor]] says welcome home [[Aben]]
+- The area is built to be a death trap
+- The station is the platform for the [[northern district of New Victoris]] and taken through tunnels to secret laboratory back has a large tank with a green liquid that is very translucent and has a skeleton in it, it is [[Sylas]] in a vat
+- There is a desk where [[Aben]] used to work and he remembers it! 
+- [[Trevor]] says this is what they did with his [[phylactery]] and he can continue to regenerate in this vat and can stop him from being a problem
+- [[Trevor]] talks about banning [[Hemocraft]] because of [[Sylas]] and he knows that [[Aben]] has done magic and tells him it will destroy him
+- The [[phylactery]] for [[Sylas]] was create by the blood of someone [[draconic]] 
+- "Is Jesus a dragon?" -Ian
+- [[Aben]] talks about how he is willing to fix himself in any way possible and that some blood magic can be used for good 
+- [[Trevor]] says it is only going to make it worse
+- Crash! the facility shakes and the lights shake a bit and crashes again
+- [[Trevor]] undoes the shackles on [[Aben]] and says he has places to be
+- [[Aben]] gets a cardboard box on his desk that shows he was about to be fired and he gathers all his things
+- [[Aben]] heads out the way he came through the [[Blackbridge Antiques]] and he hears the roar of a large creature
+- [[Aben]] takes train back to the [[Maw]] and goes through his box of files and records and a leather bound journal that dates to about two months ago now
+- Something happened a little over two months ago that caused [[Aben]] to be infected before the [[Sylas]] thing happened with [[Perrin]] 
+- He comes out of the [[Blackbridge Antiques]] at the [[Maw]]
+- [[Jadaya]] wakes up due to the [[puppies]] and steps outside to a grizzly grey sky and there is ash in the sky
+- [[Reginald]] wakes up to [[Seraphina]] screaming at [[Wilbur]] the cave goblin with the blue hat blank milky white eyes and sharp teeth telling them the magic items are ready
+- [[Wilbur]] gives [[Geros]] his [[Bimuna heart maul]] stuff infused
+- Ash is coming from great cloud over the district to the north
+- [[Aben]] heads out from bobs tavern and meets up and we catch up about the [[Circle of Embers]]  and he tells us about [[Sylas]] being contained
+- We decide to take the train to the [[northern district of New Victoris]] but when we swipe our [[ID card]] it has a red line in it
+- A guard checks if we are residents of [[New Victoris]]
+- He takes our names and I give [[Gibli]] my alter ego name because I'm suspicious of big brother
+- [[Madeline]] runs up and gives [[Aben]] his [[gun]] back
+- We get the map for [[Dawntrail]] 
+- [[Geros]] leads us to the Porter's Guild 
+- There is a figure in a white suite and a red cloak looking at the [[Dragon Statue]]
+- It is [[Atlas]] with [[Flicker]] beside him
+- [[Alisha]] gives me a [[Misty Step]] spell scroll
+- I disguise as [[Gibli]] and sneak in the crowd on the stairs close to [[Atlas]] and [[Flicker]] and they are talking about the statue
+- [[Flicker]] says the statue looks like a younger atlas
+ - [[Atlas]] says nothing for a while, and says there is someone behind us
+ - [[Jadaya]] gives [[Aben]] his dart gun back
+ - [[Atlas]] says there are more of them
+ - I use the [[Misty Step]] and let them know we have been spotted and we should leave
+ - [[Geros]] apparently has a spy network and asks if the nobles are in danger
+- I go to the [[Blackbridge Antiques]] to register my card at this station
+- [[Geros]] goes to the orphanage for some reason and asks about their school
+- He then goes to the waste disposal site 
+- [[Aren]] is the superintendent of the [[orphanage]] and recognizes [[Reginald]] from college
+- One new person in red robes is coming down the road to the orphanage 
+- Two [[Cultists]] come down toward the three of us going north
+- I shoot two arrows with hail of thorns and shred the two [[Cultists]]
+- One of the [[Cultists]] hits something on the mask right before being shredded and sends message
+- At the stairs from the statue two figures step out and one transforms into an ancient red [[dragon]] identical to the statue and takes off to the sky [[Atlas]] 
+- [[Flicker]] also shifts into a dragon comparatively smaller red as well 
+- [[Flicker]] crawls down the steps toward us
+- I dash to the stairs and cast Hunters Mark
+- [[Reginald]] summons [[eldritch cannon]] in protector mode
+- [[Alisha]] commands swallow and condescends him
+- [[Geros]] takes speed/haste and does 90 damage
+- The marketplace bursts into fire 
+- [[Flicker]] is critical 
+- [[Jadaya]] takes final mark and chops off the dragons head of [[Flicker]], and [[Flicker]] turns into half elf and runs away
+- We chase [[Flicker]] up the stairs to the [[apex of the world]] 
+
+Previous Session: [[Session 35]]
+Next Session: [[Session 37]]

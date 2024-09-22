@@ -24,3 +24,5 @@ Was Knighted as the eleventh [[Archdruid]] of the [[Circle of Embers]] due to hi
 Is now the 10th [[Archdruid]] because we froze one at the [[Cryomancer's Keep]]
 
 Was groomed into this as a child to join the [[Circle of Embers]]
+
+After their defeat and interrogation by the [[Cultbusters]], the [[Circle of Embers]] sent [[Flicker]] back to their home in the [[Forest of Ancient Gods]]

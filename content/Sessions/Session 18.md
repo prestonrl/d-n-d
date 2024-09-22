@@ -1,0 +1,34 @@
+- [[Alisha]] wakes in a medical purple tent
+- [[Fabian]] is watching over her and asks if she plans on coming back
+- [[Fabian]]'s sister has arrived
+- Hear [[Khione]] come and asks about [[Finn]] says we shouldn't have let him go
+- We catch [[Alisha]] up
+- [[Fabian]] comes back after his meeting and says we are leaving tonight
+- I notice that [[Alisha]] is on edge about going to [[Briar Estate]]
+- I go to [[bakery]] cart and buy brownies from the goblin
+- [[Daefaren]] gives me back the 33 gold he had stolen
+- We take carts to the [[Briar Estate]]
+- Black smoke rises out to the west
+- Guard at checkpoint asks [[Geros]] about [[Shanon]] 
+- [[Aben]] and I get told to go to the western quarter to make appointment to see [[Trevor]] 
+- [[Geros]] goes to sister, [[Brazia]], who looks human
+- [[Tizlin]] is his other sister 
+- [[Jadaya]] was hired by [[Brazia]] but [[Brazia]] doesn't remember 
+- [[Jadaya]] doesn't remember what was offered to her but knows it was very important
+- [[Geros]] goes to [[Damien]] the leader of the guard
+- reports on [[Dracor]] being dead
+- reports on [[mutagen]] and [[Damien]] puts estate into lockdown
+- Estate has mining operation out west the [[Aurum Briar Mine]]
+- [[Daefaren]] throws a book at [[Trevor]]'s door after are denied appointment
+- [[Trevor]] comes out and throws a book back
+- We get appointment to speak with [[Trevor]] at 10 am tomorrow
+- [[Geros]] offers to help barkeep with [[rat problem]]
+- rat is infected with [[green lethal poison]] 
+- I promise [[Jadaya]] to ask [[Trevor]] about the [[Five Pillars]] hiring her and then forgetting about it
+- [[Alisha]] asks about [[Trevor]] who she has heard of
+- the twins [[Elias]] and [[Tobias]] approach [[Alisha]] about her being back in town and ask her about lockdown
+- Twins ask her to find a [[ring for Alisha to find]]
+- [[Jadaya]] drinks the whiskey and the tequila and passes out
+
+Previous Session: [[Session 17]]
+Next Session: [[Session 19]]

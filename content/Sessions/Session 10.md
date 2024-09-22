@@ -1,0 +1,48 @@
+- head down [[train tracks]] from the [[train platform]]
+- Follow bluish light to opening into walls of [[Levistus' Workshop]] which had been build on top of the ancient [[train tracks]]
+- inside found a pedestal [[inky black substance]] in block of [[ice]]
+- A frozen [[dark cryomancer]] in ice as well infected with [[Mutagen 2]] from the mutant [[lich heart]]
+- [[crystal heart]] found frozen in ice as well
+- Edges of room have a seam and aren’t connected to wall
+- Ink is fresh, small tendril of inky substance 
+- Books [[Mausoleum of Levistus]] 100 pages of same spell
+	- is the spell that has frozen everything
+- [[Geros]] melts ice around the [[crystal heart]] with a [[Golden Flowers]]
+- [[inky black substance]] melds into ground and fades away
+- [[ice]] behind heart melts and tendrils recede from exit tunnel
+- mage pitch black eyes with ink tries to attack [[Finn]] on seeing him
+- [[Theodore]] is the mage
+	- [[Khione]] face goes pale at name Theodore
+- Finn drops sword [[bloody blade]] 
+- Theodore has similar sword that drops red blood
+- shot arrow with last flower [[Golden Flowers]] to damage ice armor
+- [[Theodore]] is wearing [[Theo's locket]] that needs key same as Finns
+- [[Drayax]] critical hit with 1 on the ax and bashed brains in
+- [[Theo's locket]]has a black and white [[photo]] of [[Finn]] and Theo on a date
+- Small flat grey stone with ruby on it, etchings mach sigil with leaky black sigil
+- rune stone with inky black sigil found by [[Geros]]
+- We find out more about Finn's sword the [[bloody blade]]
+- [[Drayax]] pulls lever at the back of the room, room moves up inside the building 
+- Theo wakes up blue eyes and runs away off the building as a [[werewolf]]
+- Looking at [[Arch Cryomancer's Tower]] see window and attempt to climb through 
+- large round [[conference room]] with 12 chairs around table with map of keep and area
+- Map on table is older than our map
+- [[Drayax]] breaks lever and goes back down to basement
+- [[Alisha]] in keep with me.
+- lots of [[turquoise]] everywhere that the [[cryomancer]]'s just like
+- We can tell the room was left hastily
+- Upstairs is a [[Throne room]]
+- up leads to [[observatory]] walls shift with telescope slides
+- We shift the room and see the next district has red tents on wall with bonfires and things. There is no ice, but this district has been taken over by the [[Cultists]] of the [[Circle of Embers]]
+- the [[Circle of Embers]] has a gun and shot at and broke the telescope
+- [[Archdruid]] and[[Circle of Embers]] are together
+- [[Geros]] puts flower on door frozen leading out to the courtyard
+- [[Drayax]] lost health to a broom
+- bought a [[update lens]] for the [[Tome of Communication]]
+- bought 20 [[fire arrows]] extra 1D6 damage when hit
+- I buy [[Bailey]] some [[horseshoes of spider climbing]]
+- down to 88 gold
+
+Recap: [[Session 10 Recap]]
+Previous Session: [[Session 9]]
+Next Session: [[Session 11]]

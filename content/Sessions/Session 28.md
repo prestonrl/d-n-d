@@ -1,0 +1,33 @@
+ - Starting at 5:07am. 
+ - [[Aben]] finds something he was looking for at night and finds [[Daefaren]]
+ - [[Daefaren]] is basically all ready dead with a blood magic curse [[Brand of Castigation]] but crawling on the ground
+ - [[Daefaren]] says [[Sylas]] happened
+ - [[Daefaren]] has scared branding on his skin, the mark of the curse
+ - [[Tobias]] is ash, [[Elias]] is the spy
+ - [[Sylas]] is loosing his mind, he knows it and he is mutating 
+ - Me, [[Tizlin]], and [[Reginald]] go to find [[Elias]] and I disguise self as a dwarf named [[Gibli]]
+ - His room is on the second floor
+ - [[Elias]] sounds under the weather
+ - [[Alisha]] hears whispering 
+ - [[Aben]] asks [[Daefaren]] to sacrifice himself he got scrolls of blood magic to heal himself from the blind beholder place [[Carthian Treatment Center]] this will kill [[Daefaren]] and save [[Aben]]
+ - [[Tizlin]] casts [[zone of truth ]]and most of us are affected
+ - I climb and get some candle wax to mould into [[earplugs]]
+ - [[Reginald]] lock picks the door
+ - [[Alisha]] cast command and makes him lay prone
+ - Room is in utter disarray and papers everywhere, a book with a red ruby has been hastily stuffed on a shelf
+ - There is a faint wisp of a substance in the air
+ - [[Tizlin]] detects necrotic magic and its flowing out 
+ - We have seen the book within the last thirty minutes, it is the same as the book [[Daefaren]] came back with [[Elias book]]
+ - The book is manufactured and has a monocle attachment made of ruby 
+ - [[Daefaren]] tried to leave and [[Aben]] hits him with a sedative 
+ - [[Tizlin]] breaks ruby off of book
+ - [[Reginald]] halfway seals the balcony doors 
+ - [[Alisha]] is convinced to shackle and tie up [[Elias]]
+ - Storage room we find open chest with skull of Wooterow family
+ - [[Reginald]] tries to wedge the scull off and it shoots him with lasers 
+ - They get the skull
+ - [[Aben]] is doing his blood thing and [[Daefaren]] melts away
+ - The skulls name is [[Greg]] 
+
+Previous Session: [[Session 27]]
+Next Session: [[Session 29]]

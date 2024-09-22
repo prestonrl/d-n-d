@@ -1,0 +1,38 @@
+- We start exploration initiative
+- [[Aben]] checks the medical bay and goes to the blood magic room
+- [[Misty Step]], [[Vortex Warp]], [[Wrist pocket]] spell scrolls found in library
+- [[Jadaya]] finds [[Haste]], [[Remove Curse]]
+- [[Golden Vault]] is [[Daefaren]] guild
+- [[Aben]] takes ALL the blood magic scrolls
+- [[Reginald]] examins the artifacts in the museum and finds an old common city name [[Waterdeep]]
+- I investigate [[plan sigma]], but it seems to be newer than this building
+- I take some of the blind beholder vials and syringes 
+- [[Geros]] finds everything in here has dark magic
+- [[Daefaren]] is filling out his report to his guild by asking me questions
+- [[Jadaya]] gets a new [[Tome of Communication]] with the notification lens [[update lens]] 
+- Reginald tells me about the sword from [[Waterdeep]] and I go to museum and find it is a exhibit of an average upper middle class family home
+- I go through the Medical bay to the ...
+- [[Old Victoris Extraction Site]] has war room table with three humans in vests turned to stone
+- [[Geros]] gets a bunch of spell scrolls Detect magic, ball, tensors floating disc, remove curse, second remove curse, spell of erratic knocking
+- New room, massive oval shaped room with large button on pedestal, and an small box with electrical switch with two lights to indicate if its on or off
+- [[Daefaren]] flips the switch to turn it on
+- there is a bleached oval on the wall high up
+- [[Daefaren]] hits the button and the room goes dark, in the circle an eye shows, blinks and shows and 18
+- Seven doorframes that are sealed off with wood
+- [[Aben]] hits the switch and the room shakes and the floor goes down 30 feet 
+- The button resets the counter and the floor teleports up to the 18th floor
+- Everything in the room that was from [[Old Victoris]] turned to stone 
+- we go to elevator
+- we find a study with rations and stuff
+- [[Reginald]] finds a switch that does a time warp and gives us a long rest
+- We go to floor 16 and we find a medium sized undead creature [[Wight]]
+- [[Displacer Beast]] on level 15
+- I investigate and find a flashing thing on its neck that seems to be the what was keeping the lever in place, I sniper shot with an arrow and deactivate it so we can go down the next level without killing it
+- Floor 14 an interface [[access point]] that [[Aben]] is able to use. A speaker says tutorial complete 
+- Floor 13 is another rest floor
+- [[Geros]] makes us go down to Floor 12
+- [[Jadaya]] throws torch to what we see is a [[fire elemental ]]
+- [[Jadaya]] is now burning 
+
+Previous Session: [[Session 22]]
+Next Session: [[Session 24]]

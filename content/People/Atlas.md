@@ -4,7 +4,15 @@ Wears white suit
 Has white hair
 Red cloak
 
-Is a [[great wyrm]]
+[[Crown]]
+
+Married to [[Sylas]]
+
+Is a [[great wyrm]] but is no longer immortal due to the [[calamity]]
+
+Is a polymorph dragon
+
+Does not remember his parents
 
 Can transform into an ancient red [[dragon]]
 

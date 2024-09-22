@@ -1,0 +1,77 @@
+- [[Sylas]] is now ash, but his bones are still there
+- [[Aben]] still has [[mutagen]]
+- [[Aben]] gives [[Geros]] his stuff back and they talk about him coming back
+- [[Tizlin]] is alive and awake and [[Geros]] tells her that dad would be disappointed about her drinking that much
+- [[Geros]] hears the voice of a [[Tabaxi]] the [[cat creature]] offering the chance to make the story his own again
+- His right hand starts to glow the voice says say her name
+- he says [[Brazia]] name and she appears
+- She tell him she did die and she disintegrated
+- [[Reginald]] is gone and we don't know what happened with him
+- [[Klaus]] is passed out and [[Sylvia]] is furious and covered in blood
+- [[Trevor]] and [[Damien]] take care of things. 
+- [[Geros]] finds a [[Golden Flowers]] and an emblem that can be put on the hilt of a sword
+- [[Jadaya]] gets a great sword with arcane runes
+- I find a very old looking normal sword that is inside a scabbard and I decide not to unsheathe  it yet ([[sword of incomprehensible screaming]])
+- [[Alisha]] finds quiver of [[crystal tipped arrow]]s and gives them to me
+- [[Aben]] finds long black rifle with [[shadowfell]] energy
+- [[Aben]] gives the ax to [[Jadaya]] 
+- I talk to [[Trevor]] who tells us the [[phylactery]] is in a place where [[Sylas]] will revive in a [[stasis chamber]], and will not be a problem unless someone lets him out
+- [[Jadaya]] feels like she has held the ax before and hears a light howling outside 
+- [[Geros]] helps [[Xavier]] move [[Klaus]] out the room 
+- [[Aben]] takes [[Sylas]] ash and put it in a labeled vial and put it on his belt next to [[Daefaren]] 
+- [[Geros]] gives the wizard the [[schematics]] and tell him all the cool magic stuff he has and [[Xavier]] tries to runs away with it so [[Geros]] takes his [[puzzle cube]]
+- [[Geros]] ties him up and puts him in a corner and writes time out chair 
+- [[Moyra]] rushes out of the dining room past [[Trevor]] she says they ran a test on the food and suspicions were correct 
+- [[Alisha]] leaves [[Klaus]] with [[Damien]] and follows [[Trevor]] upstairs and they found [[Elias]] and [[Sylvia]] 
+- [[Trevor]] says they are going to do complex memory wipes on the party attendees 
+- [[Sylvia]] has been poisoning a lot of people at the [[Briar Estate]]. They want to wipe her memories and charge her with the crimes, which is difficult. 
+- [[Alisha]] says to send her to the [[Aurum Estate]]
+- [[Geros]], [[Tizlin]], and [[Brazia]] are escorted into the meeting room 
+- [[Aben]] looks for signs of [[Reginald]] but doesn't find anything
+- [[Trevor]] offers memory wipes to the [[Five Pillars]] members 
+- [[Geros]] messes with the [[puzzle cube]]
+- [[Aben]] tells us [[Reginald]] is engaged
+- [[Trevor]] says taking care of [[Sylas]] should have taken care of the [[mutagen]]
+-  [[Aben]] tells us what happened with him and [[Daefaren]] with the [[Hemocraft]] healing
+- [[Trevor]] says to go to the [[northern district of New Victoris]] / [[New Victoris]] to link up with the [[Blind Beholder]] when we go there. 
+- [[Trevor]] says he is going to escort us to [[New Victoris]] because he needs some equipment there he will take us as far as the [[Maw]] 
+- [[Trevor]] directs us to the library and in through the secret passageway 
+- [[Trevor]] says he is aware of  [[Sylas]]'s [[partner]] and they shouldn't be a problem
+- We get info for Trevor to use the [[Tome of Communication]] to contact him now.
+- [[Geros]] reads my note and says I was really quick finding his sister and he forgives me
+- [[Moyra]] helps [[Bailey]] get to the train with a bigger elevator 
+- We get to the train platform and he brings us to dais with a large crystal screen there is a bar of medal to grab the gold and attune to it
+- I attune and a profile is shown on the screen. Lightning rail [[Briar Estate]] north and I pull the piece of medal out and get a key card out with encrypted runes. It is an [[ID card]] to confirm my identity with [[Blind Beholder]] tech. dark blue sapphire one. 
+- [[Geros]] last name is redacted on his card on diamond
+- [[Alisha]]'s is ruby
+- [[Jadaya]] is blue sapphire
+- [[Aben]] gets his and retrieved a previous card and his has more info and his is sapphire as well
+- [[Trevor]] is the [[train]] conductor and the giant steel door opens
+- [[Carthion Containment Protocol]] is over everywhere 
+- [[Geros]] opens the safe in the gold car and finds lots of poker chips
+- [[Jadaya]] makes food
+- We look at maps and catch up on backstories
+- We take a long rest and when we wake we are no longer underground. We are on a bridge and we can see down to [[automaton]]'s working on stuff below
+- We are moved by a contraption back into a tunnel and make it to a small train platform
+- [[Jadaya]] honks the horn
+- [[Geros]] almost breaks the turnstile on the train platform
+- I go through the turnstile with my [[ID card]] but [[Trevor]] has to make some changes for [[Bailey]] to come through
+- We go up stairs to a shabby wood wall with a small door and go through to an antique shop with an elf manning it
+- [[Gaylend Billows]] is the elf running the shop 
+- He has heard of the Bladeless family and is surprised by [[Aben]]'s presence
+- [[Willbur's Ward]] sells magic items next door 
+- [[Maw]] is strangely abandoned
+- [[Adventure World]] generic shop
+- Antique shop is called [[Blackbridge Antiques]]
+- [[Geros]] sets up a Quest cork board and [[Gaylend Billows]] puts it outside the shop
+- Massive wall behind the building several hundred feet high
+- We go to Bob's Tavern the bar keeper is a [[Goliath]]
+- Three guests are there one is a [[gnome]]
+- The gnome is [[Madeline]] Foxtrot and they are friends gold marking on her right eye 
+- We buy map of the [[Maw]] for 2 gold that [[Geros]] pays and then pays her 50 gold to pre-buy all the maps she is working on
+- [[Trevor]] inspects the vial [[Aben]] used to wipe his memory and finds he has been tampering with things and asks [[Aben]] to come with him
+- [[Aben]] is put into cuffs and is taken away by [[Trevor]] and we didn't see this happen
+- Three [[Cultists]] in red robes step into the tavern
+
+Previous Session: [[Session 32]]
+Next Session: [[Session 34]]

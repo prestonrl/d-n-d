@@ -1,0 +1,39 @@
+- [[Daefaren]] wakes in dark caverns feeling like it has been just moments since the battle with the guards
+- Finds [[Geros]] and wakes him up
+- [[Geros]] walked to a cavern with a long bridge and a large ruby mine
+- [[Daefaren]] walks the other way and finds our tracks 
+- [[Geros]] talks to me with the [[Tome of Communication]] and tells me about the ruby mine
+- I tell him to come up
+- [[Reginald]] disappears
+- We all explore the rooms
+- [[Aben]] shows me the un-redacted [[assignment paper]]
+- [[Daefaren]] goes to break the glass in the museum
+- [[Alisha]] finds the paperwork of [[Trevor]] working on rebreathers
+- I take the prototype [[rebreather]] 
+- [[Daefaren]] finds a tea room with a trap he disarms
+- [[Geros]] copies the [[schematics]] for the rebreather, gauntlets, sword, crossbow, ruby battery cylinders
+- [[Aben]] finds [[magic pen]] that only the person focused on can read
+- [[Daefaren]] found a trapped room with 7 [[red crystal hearts]] 
+- [[Elias]] and [[Tobias]] Briar sons of [[Sylvia]] and they sent [[Alisha]] to find a ruby ring [[ring for Alisha to find]] but are also the ones who called us out for breaking quarantine  
+- [[Aben]] takes [[red crystal hearts]] 
+- room 009 is security room
+- room 008 cartography room
+- [[Daefaren]] gives me a map of [[Bruelethor]] 
+- [[Alisha]] talks about [[Aurum]] family managing this [[Aurum Briar Mine]]
+- [[Geros]] gives me 3 [[Adamantium arrows]] arrows that always score a critical hit
+- We spend a lot of time exploring the grid of rooms
+- [[Bimuna]] dark god energy to power [[automaton]] 
+- 12th room is about the study of blood magic [[Hemocraft]]
+- also study and charts about moon [[lycanthropy]]
+- the archive room shows [[Five Pillars]] and blind beholder trade [[Memory Potion]] to wipe memories 
+- [[Geros]] father was hired by the king to be a part of the [[Five Pillars]] church, was killed and they are looking for who did it. His sister took that position. 
+- [[Plan T]] is the wipe memory potion that was the needle that [[Aben]] had 
+- [[Geros]] takes the [[Bimuna heart]] from the dark [[automaton]]
+- [[Daefaren]] finds a [[cloak of the blind]]
+- lycanthropy is common werewolf [[lycanthropy]]
+- there used to be safer form of [[Hemocraft]] that could reduce effects and control
+- All blood magic was banned after [[mutagen]]
+- room is tracking groups that use [[Hemocraft]] [[Blind Beholder]]
+
+Previous Session: [[Session 20]]
+Next Session: [[Session 22]]

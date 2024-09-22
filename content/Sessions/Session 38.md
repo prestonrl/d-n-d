@@ -1,0 +1,90 @@
+ - [[Perrin]] and [[Jadaya]] stand in a council of five nobles in a dark room, the [[council of keys]]
+	 - I perceive scales in the back of the council and ancient heat 
+		 - I tell [[Jadaya]] about the [[dragon]] in the back of the room
+	- [[Jadaya]] knows the noble on the far left with an evil face
+	-  They know that I have survived 4 dragon attacks 
+	 - The council would like information about the [[Labyrinth]] and will let us live in exchange for giving it up
+		 - They ask how old the [[Labyrinth]] is. I don't know the answer
+		 - I tell them I found it a month ago
+		 - They believe I am the first person to discover the [[Labyrinth]] (Actually it was the [[Cultists]])
+		 - They ask if it has any connection with  [[The Lost Maze]]
+		 - Ask about its connection to the [[Blind Beholder]]
+			 - We unskillfully play dumb to any questions
+	 - An incomplete [[teleportation circle]] is on the ground beneath us
+	 - A form shifts and a woman walks up, the human form of the [[dragon woman]]
+		 - Looks early 30s, black hair, large coat with gold trim, gold forms on eyes
+		 - She asks if we wish to live
+			 - [[Jadaya]] says she wants to live but also wants to be paid for the work they hired her to do
+				 - Which was to find [[Geros]]
+				 - They say they didn't intend for her to live
+	 - We hear stone grinding and a sigil appears and two very very very high [[changeling]]s show up
+	 - Says the [[Cultbusters]] are far more trouble than they are worth
+ - The [[teleportation circle]] snaps us out into the city at the [[apex of the world]] 
+ - An [[orc]]ish passerby [[changeling]] tried to kill us and we run
+ - We pass a street performance with people saying lay down your life for [[Atlas]]
+ - See a red robed figures disappear 
+ - We take damage, climb a fence and see scorch marks on it
+ - Push through crowd and see glow in night and smoke in the area, and arrive at top of the [[Dawntrail]] stairs
+	 - I take wood planks to ski down the stairs and nail the landing 
+ - [[Khione]] offers to help [[Jadaya]] but was a [[changeling]] 
+ - Real [[Khione]] comes from behind and actually helps us escape and we get back to the [[Historical Society]] 
+ - [[Reginald]] tries to wake [[Geros]] and goes through his [[Bag of Holding]] to find something to wake him pulls out bagpipes 
+ - [[Khione]] sees [[Geros]] and walks back out the door
+ - [[Alisha]] talks to [[Perrin]] about [[Flicker]] and says we should try to convince [[Atlas]] tomorrow to delay their end of the world so we can find how to stop the [[calamity]] and the [[dark divide]] and [[primal divide]]
+ - We discuss and share what we know about the [[divides]] 
+ - [[Aben]] pulls me aside to ask about [[mushrooms]], I inform about set and setting
+ - We take long rest
+ - [[Reginald]] has solve 4/6 sides of the [[puzzle cube]] 
+ - I go to the library 
+ - [[Aben]] finds out [[Ted]] has already built a lab in the basement for him
+ - [[Aben]] tells him not to go in his room
+ - [[Ted]] sets up the interview conference room
+	 - We tell [[Ted]] he is all ready hired
+	 - We interview [[Biri]] and hire her
+	 - Next person small to walk in is [[Wilbur]] and sets a small [[automaton]] about chucky doll size that they made, [[Siri]]
+	- [[Aben]] adopts [[Siri]]  
+	- [[Geros]] hires [[Bruk]] for [[Missing Mysteries]]
+	- We interview [[Sable]]
+	- We interview [[Zelkrach]] and do not hire them
+	- Interview [[Basil]]
+	- We interview [[Uther]] and hire them for [[Perrin]]'s library
+		- [[Uther]] is looking for [[Minerva]]
+- [[Geros]] and crew starts walking to our appointment with [[Atlas]] 
+- in [[Dawntrail]] we go to the side allies except for [[Geros]] who goes right up the steps
+- [[Geros]] encounters a [[changeling]] and he swats them with great sword and they are dead and [[Geros]] collects the black blood
+- See small grey runes stone with fire etched in and I touch it and get 15 fire damage 
+	- They were intentionally placed [[fire rune stone]]s
+	- [[Aben]] scratches out the runes stones
+- We meet up at the [[apex of the world]]
+- I prepare some emergency skis for the stairs in case I need them on the return journey
+- We see the [[New Victoris Palace]] on the [[pedestal]]
+- [[Madeline]] is sulking there, thinks there is some drama happening up at the  [[New Victoris Palace]] 
+	- She is busy with her date not going well with [[Alex]]
+- We convince [[Madeline]] to show us an alternate way up to the [[New Victoris Palace]]
+	- There is a gondola, and we don't have a pass
+	- Can take stairs in towers instead
+- A [[journalist]] looking half-elf lets [[Madeline]] into the tower of the [[Victorian Chronicle]]
+	- We take long spiral staircase to get up
+	- the [[Cultists]] from the [[Circle of Embers]] is trying to influence the press to put out propaganda to have people in city submit their lives to [[Atlas]]
+	- [[Geros]] chucks the cultist though the fire ruins up the stairs and he turns into a pile of ash
+		- [[Geros]] takes a vial and gets the ash and  gives it to [[Aben]] 
+		- [[Aben]] puts the ash of the cultist on the cake 
+- We make it to the place the [[teleportation circle]] had taken me and [[Jadaya]] earlier
+- [[Overseers Archives]] is the district, on the same level as the [[New Victoris Palace]] 
+- A [[dragon]] flies overhead, one of the 9 remaining [[Archdruid]]'s of the [[Circle of Embers]]
+	- [[Geros]] yells to it about the appointment
+	- the dragon comes down and lands on the bridge and challenges us to prove we are strong enough to meet the [[Crown]]
+	- [[Geros]] goes to cut its ~~redacted~~ off
+	- I cast [[hail of thorns]] and do some damage
+	- The [[dragon]] swoops into the sky and goes to run away
+	- [[Jadaya]] and [[Alisha]] swing as it goes up they land on top of it and stab it in the eye
+	- [[Geros]] uses [[moss]] to cushion [[Jadaya]]'s fall 
+- The [[Archdruid]] dies and shifts into a ashen dark elf from
+- [[Geros]] takes vial of dragon blood
+- [[Geros]] cast a spell to allow us to question the dead [[Archdruid]] 
+	- Doesn't remember its name, but is the one that successfully executed [[Bruelethor]] 
+- [[Aben]] hangs back and uses [[Hemocraft]] to take the life force from the dead [[Archdruid]], takes the health
+- [[Reginald]] hangs back and sees this happen
+
+Previous Session: [[Session 37]]
+Next Session: [[Session 39]]

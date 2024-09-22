@@ -1,0 +1,46 @@
+- [[fire elemental]] reaches stone encrusted limb to [[Jadaya]]
+- A sparking at center and then turn into green, the stone figures bend and an arcane symbol appears
+- [[Jadaya]] is now paralyzed
+- I shoot, my vision goes black, and I disappear 
+- [[Aben]] shoots and disappears as well
+- [[Reginald]] shoots it and disappears 
+- [[Jadaya]] also disappears
+- Now [[Daefaren]] is on trial with the [[council of keys]]
+- Operative of [[Golden Vault]],
+- Key tattooed on his neck
+- [[Daefaren]] contract is terminated and the key tattoo is gone 
+- Has a week until operatives 
+- [[changeling]] says to not send operatives as companions will kill him
+- [[Alisha]] comes back to the empty library
+- A voice talks to her telling her they are coming, both of them
+- She wakes in the library again and finds the recently fired [[Daefaren]]
+- She tells him about her dream 
+- They find a maintenance elevator that takes 4 hours to go down
+- [[Daefaren]] and reg [[Reginald]] about the [[changeling]]
+- We find an obsidian door with a 4 digit code
+- 3894 opens it [[Aben]]s assignment code
+- A workshop for the [[crystal heart]]s 
+- in the center is the skeletal figure of [[Sylas]] holding a [[crystal heart]] 
+- [[Sylas]] says they are running away now both of them
+- He pulls out [[Tobias]] from the teleportation circle, [[Tobias]] talks to [[Alisha]] signifying them as siblings
+- We fight [[Sylas]]
+- I use the [[Adamantium arrows]] [[Geros]] gave me 
+- [[Aben]] hears a [[voice]] that says well done on [[plan H]] and a lift is being sent down a blue force field shows up with a number 60
+- [[ruby hearts]] found on the table to the side of the fight by [[Geros]]
+- [[Sylas]] kills [[Tobias]] and cast blood curse of transfusion, [[Tobias]] turns to ash
+- [[mutagen]] magic sewing skull back together
+- [[Alisha]] says Tobias I wanted you to face judgment but not like this
+- [[Sylas]] takes a vial from belt of a very potent substance
+- [[Geros]] takes 74 damage and is dissolving from the inside out
+- [[Alisha]] cast lay on hands to [[crystal heart]]
+- The [[lich]] squeezes and cracks the heart
+- [[Aben]] talks to [[voice]] in head and asks for plan sigma, elevate accelerates [[plan sigma]] 
+- I toss the [[turquoise]] from the [[Turquoise Deep Mine]]  to [[Aben]] to catapult it 
+- [[Sylas]] has clothes of blind beholder society 
+- Has salt and pepper hair and doesn't have eyes still
+- [[Geros]] takes him down 
+- [[Reginald]] takes his [[rib cage]]
+- I take a [[black ink pen]]
+
+Previous Session: [[Session 23]]
+Next Session: [[Session 25]]

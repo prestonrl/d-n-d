@@ -2,6 +2,8 @@ Note from this organization found in [[Dungeon outside Shannon]]. Note foreshado
 
 The organization of the [[Cultists]] 
 
+They are [[druids]] that can shape shift
+
 Has at least eleven [[Archdruid]]s
 
 Was in ancient times known as the [[Ember Guard]] as found in the [[Blind Beholder Briar Outpost]] museum 

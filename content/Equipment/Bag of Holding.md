@@ -1,7 +1,7 @@
 Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 
 - ~~[[Greater healing Potion]]~~
-- [[Tome of Communication]]
+- [[Tome of Communication]] with [[update lens]]
 - 12 gold
 - [[Cast Iron Key]]
 - [[Tome of Keys]]
