@@ -1,4 +1,5 @@
 Shanon:
+
 [[Session 1]]
 
 [[Session 2]]
@@ -6,12 +7,15 @@ Shanon:
 [[Session 3]]
 
 Road/Monastery:
+
 [[Session 4]]
 
 Road/Ruins:
+
 [[Session 5]]
 
 Cryomancer's Keep:
+
 [[Session 6]]
 
 [[Session 7]]
@@ -33,11 +37,13 @@ Cryomancer's Keep:
 [[Session 15]]
 
 Encampment:
+
 [[Session 16]]
 
 [[Session 17]]
 
 Briar Estate:
+
 [[Session 18]]
 
 [[Session 19]]
@@ -69,6 +75,7 @@ Briar Estate:
 [[Session 32]]
 
 New Victoris:
+
 [[Session 33]] 
 
 [[Session 34]]
