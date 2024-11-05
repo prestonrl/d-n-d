@@ -1,0 +1,1 @@
+The voice [[Jadaya]] hears when she prays says this name.

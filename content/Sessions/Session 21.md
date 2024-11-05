@@ -27,7 +27,7 @@
 - also study and charts about moon [[lycanthropy]]
 - the archive room shows [[Five Pillars]] and blind beholder trade [[Memory Potion]] to wipe memories 
 - [[Geros]] father was hired by the king to be a part of the [[Five Pillars]] church, was killed and they are looking for who did it. His sister took that position. 
-- [[Plan T]] is the wipe memory potion that was the needle that [[Aben]] had 
+- [[Plan H]] is the wipe memory potion that was the needle that [[Aben]] had 
 - [[Geros]] takes the [[Bimuna heart]] from the dark [[automaton]]
 - [[Daefaren]] finds a [[cloak of the blind]]
 - lycanthropy is common werewolf [[lycanthropy]]

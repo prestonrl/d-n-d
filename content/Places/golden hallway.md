@@ -1,0 +1,1 @@
+The stairs at the end of the [[catacombs]] led here. Where we met and fought [[Sans]].

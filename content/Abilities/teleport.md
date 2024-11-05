@@ -1,0 +1,1 @@
+An ability [[Aben]] has from [[Fey Touch]] that awakened at some point.

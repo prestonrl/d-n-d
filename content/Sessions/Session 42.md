@@ -1,0 +1,161 @@
+- We begin in the control room on the [[Hydroponic Facility]]
+	- [[Geros]] asks if [[Eve]] has seen the outside world
+		- She says yes in a sense
+			- She has multiple consciousnesses and one of them is outside
+			- She cannot walk and doesn't have legs
+		- Temporal [[automaton]]s petrol the area
+		- He asks if he could put her in robot parts
+		- [[Flicker]]'s gun was a prototype that was not supposed to leave the facility
+	- In the screens we can see the [[stasis chambers]] battery, footage is live
+		- We see movement, there are people down here
+			- Wearing researcher equipment
+			- lab coats
+			- Some armor
+			- Field agent uniforms like [[Aben]]'s 
+		- They are all moving in one direction
+			- See a number of panicked faces
+				- They are evacuating
+				- The number of people trickle down until there are no one left
+			- The last person to leave is [[Trevor]] 
+				- we see him pull a [[sending stone]] and send a message
+	- Through the windows in the tunnels in distance the lights are shutting off
+		- The lights go off in control room and screens are static
+		- [[Eve]] is still there though
+			- She says the Overseer submitted a safety threat
+				- She asks if we are a threat
+				- Because of [[Geros]] she is not convinced we are not a threat
+					- [[Aben]] recognizes [[Eve]] voice as the voice in his head that called down the elevator in the briar place
+		- Red emergency lights illuminate 
+		- I use my [[Magic Lantern]]
+		- [[Aben]] asks how to get to lesser [[Britain]] and a door opens
+	- We go by a large research room with tables of mahogany
+		- four creatures in tanks larger than most aquaculture
+		- agricultural documents scattered on the center table
+			- [[Aben]] picks up doc on the [[Blind Beholder]] himself
+			- [[Geros]] gets a document on man named [[Sebastian Stone]]
+			- Third document is on [[Mutagen]]
+		- [[Aben]] feels sick and the green returns to his neck
+			- [[Eve]] voice says [[mutagen]] detected
+				- Water beings flowing in the room
+				- Eve says beginning protocol ...
+				- A new male voice says something about recognizing [[Aben]]
+					- High ranking person
+				- Bio-terminal activated beginning [[Delilah protocol]]
+					- The room begins filling with water 
+					- Aperture opening on the other side of the room opens
+					- we hear a thump
+					- [[Aben]] deactivates a turret in the back corner
+					- [[Jadaya]] sees a name [[aboleth]] on document
+						- It is a creature  slowly using tentacles grab things to move towards us
+							- [[Alisha]] throws a javelin
+					- [[Geros]] had a [[Cultists]] in his [[Bag of Holding]] and forgot about them for two days
+						- Geros throws it at the [[aboleth]] but it only goes 30 feet and lands right next to [[Jadaya]]
+						- [[Geros]] cries and sobs, "why!!"
+					- I grapple up to the gun turret on the ceiling in the corner and cast [[hunters mark]] 
+					- Eldridge magic from the [[aboleth]] goes through the water and causes psychic damage
+					- [[Jadaya]] walks across the dead body of the cultist to get in range of the creature
+					- [[Jadaya]] hops on the creature and ties a rope to it and uses the javelins in it to steer
+					- [[Geros]] tries to jump off the table but the table takes damage
+					- We reprogram the turret gun and split the [[aboleth]] in half with the bullets
+					- [[Geros]] dissects it for us
+						- [[Geros]] gives [[Aben]] 3 poisons from it
+							- [[Jadaya]] and [[Alisha]] and [[Geros]] have them
+							- [[aboleth potions]]
+							- 1d4 hours at a time an afflicting creature can only breathe underwater
+				- The water reaches the roof and [[Aben]] is trying to open the door but keeps messing it up
+					- [[Geros]] his the door so water flows out
+					- Elias flows out as well and [[Geros]] grabs him and heals him
+					- [[Jadaya]] hits [[Aben]] for almost drowning us
+- Now in room behind main research office
+	- Private quarters for high ranking person within the [[Blind Beholder]]
+		- Inside the tank in the tube are two more [[aboleth]]'s 
+			- They are branded with an eye with a scratched out iris
+		- [[Aben]] uses [[blood curse of transfusion]] to heal from the body of the dead [[aboleth]]
+			- cuts his hand with dagger and pulls blood into him
+			- effects reduced for 24 hours
+		- There is the [[Tome of Communication]] of [[Sebastian Stone]]
+			- no words written in it
+			- [[Geros]] gives the paper on [[Sebastian Stone]] to [[Aben]]
+		- Spell rings were found
+		- [[Aben]] finds a secret button that get documents on the divides
+		- Each envelop says [[ABB]] on them 
+		- 80 books on water to my [[Bag of Holding]]
+- [[Eve]] opens the exit door for us
+	- [[Aben]] asks for [[Eve]] to un-classify his documents
+		- We ask for info on: 
+			- [[Aben]]
+			- [[Atlas]]
+			- [[divides]]
+			- [[Hightower Estate]]
+			- [[Alisha]]
+			- [[Jadaya]]
+			- [[Geros]]
+			- [[Reginald]]
+			- [[Perrin]]
+			- [[Shanon]]
+			- Cottontree Family
+			- Westera Family
+			- Pet Store in [[New Victoris]]
+			- Casino winning numbers
+			- hidden magic shop
+			- minutemen
+			- Lucy Wisterna
+			- Crucible Phenomenon 
+			- Gold
+			- [[Drayax]]
+			- [[Dracor]]
+			- [[Bruelethor]]
+			- A Modern world map
+			- [[City of Wisps]]
+			- Bones
+			- Goblin Blood
+			- Marriage certificates
+			- [[Silent Colossus]]
+			- how to talk to god while awake
+			- ETC
+			- Requests that were blocked:
+				- [[Sylas]]
+				- [[mutagen]]
+				- [[Trevor]]
+- We go up the stairs and go out employee door to an unassuming allyway and are now in [[Britain]]
+	- [[Reginald]] is happy to be home
+	- There is a pub called [[Tyler's Tavern]]
+	- [[Seraphina]] says this is not a great neighborhood 
+		- Says her parents aren't there, they are at [[Harker University]]
+	- [[Aben]] gives a [[spell slot ring]] to [[Seraphina]] as a wedding gift
+	- [[Geros]] talks to a lady blacksmith, [[Hector]]
+	- We go to the [[Cottontree Manor]]
+	- We go to the library and find many books
+		- I learn more about the [[Sylvan Star Crossed Kingdom]] 
+	- We see a ainting of [[Seraphina]]'s family and find she has a sister
+		- [[Beatrice]]
+	- [[Seraphina]] takes [[Reginald]] aside and talks about her affinity for the city
+		- Asks if the deal with [[Atlas]] will work or not
+			- [[Reginald]] says it is not safe here
+		- [[Beatrice]] bursts through the door
+			- She says the the [[Cultists]] are enacting martial law and the guards wont do anything about it
+	- I study the [[water books]] before taking a long rest
+- [[Geros]] sleeps in his [[maul of the pantheon]] and gets brought to court between some of the gods
+	- The god of fire and god of fire and darkness are the only ones that remain
+		- [[Bimuna]]
+		- [[New Flame]]
+	- They are so overpowering that they drown out the other gods in the maul
+- [[Geros]] wakes with gold eyes suffering from [[arcane radiation]] poisoning 
+- [[Jadaya]] wakes up to a [[changeling]] in a maid outfit
+	- uses teleportation circle and [[Lady Frouden]] appears wearing a fancy button down with vest and a patchwork sweater and sleeves are too long, has deep bags under her eye
+		- [[Lady Frouden]] tells [[Jadaya]] that she looked into the deal the [[Golden Vault]] had with her (her assignment to find [[Geros]])
+			- They don't know what mission she was on or why
+			- They don't know what they promised her in return either
+				- it has been wiped from the records
+		- Asks if she is familiar with [[Aberrant dragon]], like a [[Hydra]]
+		- Tells her the Western section of the [[Forest of Ancient Gods]] is infected by most dangerous creature
+			- [[Western Godwood]] is home to [[False Hydra]]
+				- Her family may all ready be dead
+				- When a [[Hydra]] consumes something all record and memories of it go with it
+					- Most likely why her memory is so spotty
+			- [[Jadaya]] says she is going to kill it
+	- "What happened last night is between me and [[Bubbles]], who is still in my bed" - [[Lady Frouden]]
+	- She gets 130 gold
+
+Previous Session: [[Session 41]]
+Next Session: [[Session 43]]

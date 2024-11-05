@@ -1,0 +1,1 @@
+The [[blue triangle]] ruins that [[Aben]] recognizes from his [[Aben's Journal]] that led us to the [[Hydroponic Facility]]

@@ -1,0 +1,1 @@
+A ring [[Aben]] gave to [[Seraphina]] as a wedding gift

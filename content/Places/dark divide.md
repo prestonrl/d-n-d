@@ -6,3 +6,5 @@ The museum next to the [[Carthian Treatment Center]] had artifacts from a lost c
 [[Flicker]] says we saw the effects of this at the [[Cryomancer's Keep]] where [[Levistus]] was working with [[shadowfell]] energy.
 
 Is even older than [[Atlas]]
+
+Things sink into the [[shadowfell]]. 

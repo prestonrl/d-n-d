@@ -11,7 +11,7 @@
 		 - Ask about its connection to the [[Blind Beholder]]
 			 - We unskillfully play dumb to any questions
 	 - An incomplete [[teleportation circle]] is on the ground beneath us
-	 - A form shifts and a woman walks up, the human form of the [[dragon woman]]
+	 - A form shifts and a woman walks up, the human form of the [[Lady Frouden]]
 		 - Looks early 30s, black hair, large coat with gold trim, gold forms on eyes
 		 - She asks if we wish to live
 			 - [[Jadaya]] says she wants to live but also wants to be paid for the work they hired her to do

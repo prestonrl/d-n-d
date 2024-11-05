@@ -15,3 +15,5 @@ Definitely another [[werewolf]]
 [[Drayax]] caved in half his skull so he made a marbled blue glass prosthetic to put over his injured eye. This has inky stuff in it.
 
 Is a member of the [[Black Ice Cryomancer]] organization
+
+[[Aben]] investigated his blood and found that he was the one to infect [[Finn]] with [[lycanthropy]]

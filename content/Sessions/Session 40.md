@@ -1,0 +1,75 @@
+- It is a few hours before dawn, around 4-5am following the wedding of [[Reginald]] and [[Seraphina]]
+- [[Aben]] has a hand going through his throat in the basement of [[Cultbusters HQ]] in his [[Laboratory]]
+	- There is a medium sized creature slowly gaining form
+		- The [[Assimilator]]
+	- [[Aben]] shoots it and it doesn't go far enough into the cartilage to do damage
+		- The [[Assimilator]] takes down [[Aben]] and crawls to his unconscious  body
+	- I hear the gunshot and dash to the basement outside the door
+		- I try to break the lock and fail
+	- The [[Assimilator]] is going through [[Aben]]'s left arm, using [[Hemocraft]] to creating a seam around his shoulder and arm disconnects it. It fuses the arm to become part of itself.
+	- [[Alisha]] spares the dying and saves [[Aben]]
+	- 3 separate  bodies have been skinned 
+	- Has [[Aben]]'s left hand with his [[gun]] in it, but can't use it
+	- It built itself, and has the glowing effects of  [[Mutagen 2]]
+		- It is a puppet of the [[mutagen]] in a way
+		- Is not fully developed in [[mutagen]] to infect anyone yet, but could get to that point eventually 
+		- It reacts to fire. Not my icy blade
+	- I get attacked and loose a lot of damage, and get picked up and slammed into the ground 
+		- I go down for the first time
+		- [[Alisha]] heals me and pushes me away from the creature
+	- [[Aben]] wakes and wraps his profusely bleeding wound from the missing arm
+	- [[Basil]] runs up to heal [[Aben]] 
+	- [[Geros]] hits [[Alisha]] with a javelin in the back of the head
+	- The [[Assimilator]] is defeated
+- We investigate [[Aben]]'s [[Laboratory]] and see:
+	- an oil container tipped over with blood residue
+	- - Lots of documents
+		- [[Aben's Journal]]
+	- Books encased in skin
+	- Vials of many items
+		- 1 labeled [[Aben]] uninfected
+		- 1 [[Theodore]]'s [[werewolf]] blood
+		- 1 Guardian blight vial
+		- 1 congealed [[Mutagen 2]] biomass
+		- 3 [[Mutagen 2]] samples
+	- Jar filled with dirt and a plant
+	- 3 bodies on the table
+- I investigate the notes, documents from the [[Briar Estate]], and lists of spells, all pointing to the [[Aben's Journal]]. 
+	- [[Aben's Journal Entry]] 
+	- I read the journal
+- [[Jadaya]] hits [[Aben]]
+- [[Geros]] lights the bodies on fire
+- [[Geros]] goes on a quest to find [[Wilbur]] again for a lady
+	- [[Wilbur]]'s house is flying above the city
+		- [[Wilbur]] has been messing with the god items given to him to create the [[maul of the pantheon]] and ended up in the sky 
+	- [[Geros]] flys up to check it out
+		- Sees a [[Cultists]] on the city wall.
+		- [[Geros]] creates a crater on the wall and the [[Cultists]] disappears
+	- [[Geros]] got iron man [[gauntlets]] that shoot radiant light
+	- The lady who had hired [[Geros]] is [[Amasthesia]]!!
+		- I ask her about [[Shanon]] and how she escaped the [[dragon]]
+			- she teleported out
+		- I introduce her to the group.
+		- I ask her about
+			- The [[Ichor]]
+				- Where she is from
+			- The [[Silent Colossus]]
+			- [[Old Victoris]]
+			- The cost to grow back [[Aben]]'s left arm
+				- 150 gold for perfect arm
+				- 50 for a clearly not correct, but good enough arm
+- [[Madeline]] wants to go back to look for [[Alex]]
+- [[Basil]] pulls me aside and asks if i can get a plush rat from [[Madeline]] house for her in the [[Crucible]]
+	- Me [[Jadaya]] and [[Alisha]] go to [[Madeline]] house to pick up the plush and groceries
+	- a red robed [[slender cultist]] ducks outside the window
+		- They jump back over the railing and disappear without a trace. 
+- We explore the [[Crucible]] more
+	- I go into [[Arcane Commodities and Oddities]] #2
+	- [[Bubbles]]!!
+ - Atop wall is a figure in red robes and they turn into a dragon and fly out
+ - [[Jadaya]] gets [[Cookie Dough the 17th]]
+ - Guard from [[Briar Estate]] comes to [[Alisha]] and says the caravan is here
+ - [[Khione]] is infected with mutagen
+
+Previous Session: [[Session 39]]
+Next Session: [[Session 41]]

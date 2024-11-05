@@ -10,7 +10,7 @@
 	- Massive throne room with glass walls in the back and ash is coming from the horizon showing the [[northern district of New Victoris]] with embers still coming from it
 	- Two people stand in the room
 		- White suit [[Atlas]]
-		- Black Coat [[dragon woman]] is there as well
+		- Black Coat [[Lady Frouden]] is there as well
 	- [[Atlas]] asks if we want [[tea]] and offers the couches to sit down
 		- [[Atlas]] orders as the [[Crown]] for [[Geros]] to sit who refuses for a while
 	- [[Jadaya]] shows the cake in the shape of [[Flicker]]'s head
@@ -52,7 +52,7 @@
 			- The other 2 events happened at the same time
 	- [[Geros]] says if [[Atlas]] didn't see [[Geros]] stopping it the vision of the end wasn't correct
 	- [[Reginald]] asks about how uncharacteristic it is for a [[great wyrm]] to let the domain go and admit defeat
-		- [[Atlas]] says his sister the [[dragon woman]] came to convince him to try again
+		- [[Atlas]] says his sister the [[Lady Frouden]] came to convince him to try again
 		- He has agreed to try one more time but doesn't expect it to work
 			- He is creating a [[Citadel]] in [[New Victoris]]
 	- [[Atlas]] is not wearing a crown
@@ -89,7 +89,7 @@
 	- [[Geros]] draws a portrait of [[Atlas]] with the sword
 		- and sends it to [[Wilbur]] in the [[Tome of Communication]]
 	- When asked who would be against him [[Atlas]] says 
-		- His Siblings ([[dragon woman]])
+		- His Siblings ([[Lady Frouden]])
 		- and the old kings family ([[Percival]])
 	- We asked for documentation about the month grace
 		- says we have his word only
@@ -142,4 +142,4 @@
 	- [[Biri]] catches the flowers
 
 Previous Session: [[Session 38]]
-Next Session:
+Next Session: [[Session 40]]

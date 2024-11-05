@@ -20,3 +20,5 @@ Memory wipes the party attenders
 Can conduct the [[train]]
 
 arrests [[Aben]] after finding out about his [[Hemocraft]]
+
+[[Sebastian Stone]] is above them

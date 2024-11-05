@@ -12,3 +12,7 @@ Is an accomplished baker and cook that can infuse magical healing into food item
 played by Isabella
 
 From the middle of the forest
+
+Where she grew up is now infected by a [[False Hydra]]
+
+Got an ax at the [[Aurum Briar Party]] showcase. It is connected to the Wolf God.

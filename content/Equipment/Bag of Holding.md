@@ -18,7 +18,7 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - [[medical gloves]]
 - gun components
 - mahogany ammunition crate
-- 5 turquoise peices from the deep mine
+- 5 turquoise pieces from the deep mine
 - copper key from deep mine
 - prototype rebreather
 - map of [[Bruelethor]]
@@ -32,8 +32,10 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - Candle wax [[earplugs]]
 - [[crystal tipped arrow]] and quiver (used 1)
 - two [[mushrooms]] 
-- [[sparkling mushroom]]
+- [[sparkling mushroom]] - now potion that [[Aben]] made
 - [[red cloth crates]]
 - [[written slabs of ruins]]
 - [[lightweight division schematics]]
-- 
+- Minor Healing Muffins
+- [[water books]]
+- [[sending stone]] 

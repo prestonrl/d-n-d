@@ -25,7 +25,7 @@
 - He pulls out [[Tobias]] from the teleportation circle, [[Tobias]] talks to [[Alisha]] signifying them as siblings
 - We fight [[Sylas]]
 - I use the [[Adamantium arrows]] [[Geros]] gave me 
-- [[Aben]] hears a [[voice]] that says well done on [[plan H]] and a lift is being sent down a blue force field shows up with a number 60
+- [[Aben]] hears a [[voice]] that says well done on [[Plan H]] and a lift is being sent down a blue force field shows up with a number 60
 - [[ruby hearts]] found on the table to the side of the fight by [[Geros]]
 - [[Sylas]] kills [[Tobias]] and cast blood curse of transfusion, [[Tobias]] turns to ash
 - [[mutagen]] magic sewing skull back together

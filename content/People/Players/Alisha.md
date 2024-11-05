@@ -2,7 +2,7 @@ Alisha Briar A [[Paladin]] who is a member of a branch of [[Earthmother]] follow
 
 Sent by her branch to check on [[monastery]]. [[Willow]]'s apology to her included a +1 longsword.
 
-Sister to [[Tobias]] and [[Elias]] so she is a Briar and member of the [[Briar Estate]]
+Sister (or half sister) to [[Tobias]] and [[Elias]] so she is a Briar and member of the [[Briar Estate]]
 
 Knows [[Trevor]]
 

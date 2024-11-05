@@ -5,3 +5,5 @@ Claimed to have come from [[Shanon]] but had no idea of the events of the night 
 Actually from [[Cryomancer's Keep]]
 
 Gets infected from Levistus's magic by the [[ring of winter]]
+
+infected with [[Mutagen 2]]

@@ -1,5 +1,7 @@
 An organization we keep running into
 
+Symbol is an eye with a scratched out iris
+
 [[Trevor]] and [[Aben]] are members
 
 Started as the C.I.A. like intelligence agency of [[Old Victoris]] while the [[Ember Guard]] was more of the usual police/guard force of the city
@@ -20,3 +22,5 @@ Most likely the builders of the original [[automaton]]s
 Very technologically advanced, have security cameras and monitoring stations, ID's, guns, etc
 
 Trades [[Memory Potion]]'s with the [[Five Pillars]] 
+
+[[Sebastian Stone]] is a high ranking member above [[Trevor]]

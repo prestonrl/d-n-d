@@ -19,3 +19,5 @@ Has cat [[Miros]]
 Sisters [[Brazia]] and [[Tizlin]]
 
 His father was hired by the king to be a part of the [[Five Pillars]] church
+
+Has a sliver of the power of [[Bimuna]] within him

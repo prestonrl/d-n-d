@@ -15,3 +15,9 @@ Had [[green magic]] and [[Perrin]] cut off his arm at the elbow
 Completely disappeared after falling from his window
 
 [[Reginald]] shot him in the leg during the fight at the party
+
+After the events of the [[Aurum Briar Party]] his memory was wiped.
+
+Comes to [[New Victoris]] to find someone in [[Britain]].
+
+Doesn't remember what happened to [[Tobias]] and thinks [[Alisha]] wasn't there.

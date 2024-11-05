@@ -1,1 +1,0 @@
-[[Memory Potion]] that was used by [[Aben]] to wipe his memory

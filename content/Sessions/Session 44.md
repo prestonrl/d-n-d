@@ -1,0 +1,95 @@
+- [[Geros]] points to the fire god he sees in a dream
+	- The [[New Flame]] grants him three questions
+		- Asks where the other gods are and if he can free them
+		- The god of fire says, t''hey are right here''
+		- The god of darkness, [[Bimuna]], says ''you cannot save them''
+	- The [[New Flame]] is part of [[Atlas]]'s powers 
+		- Atlas is one fifth of the power
+			- musings of [[Geros]] that may be correct
+	- [[Geros]] asks why [[Bimuna]] has been trying to get his attention
+		- Has within him a sliver of their own power
+	- [[Geros]] wakes up
+- [[Alisha]] is meeting with an assistant of [[Trevor]] at the non specific open shrine
+	- [[Geros]] wakes up and tells [[Alisha]] that he has a sliver of [[Bimuna]]'s power
+	- [[Geros]] is loosing it 
+		- talking about conversations with us we haven't had 
+		 - has been more emotional
+		- Asks how to stop this
+	- [[Alisha]] tries to comfort him 
+	- [[Jadaya]] is praying to wolf god
+	- [[Aben]] is in his room researching [[werewolf]] stuff
+- We reconvene at the bottom floor of the [[Cottontree Manor]]
+	- Alisha tells us [[Trevor]] wants to talk with us 
+- We follow the assistant to [[220 Baker Street]] 
+	- [[Trevor]] looks at us with a very concerned look
+		- Asks about bringing [[Elias]] to the [[Hydroponic Facility]] and almost getting him killed
+			- [[Alisha]] says it was not our brightest moment
+		- [[Aben]] brings up [[Sebastian Stone]] 
+			- asks how we know that
+			- says he tried to kill us with [[Delilah]]
+			- [[Sebastian Stone]] is over [[Trevor]]
+	- He tells us that while [[Sylas]] has been contained, there is residual magic in the city
+		- weak [[lich]] magic is coming from the [[catacombs]] 
+		- When [[Sylas]] re-awoke there was a bloom of [[mutagen]] energy that caused this
+	- Evacuation order in [[Hydroponic Facility]] was because [[Aben]] was there
+		- [[Trevor]] says [[Aben]] is an active threat to their organization 
+		- [[Aben]] has potential to become a [[lich]] like [[Sylas]] 
+	- [[Aben]] asks about [[arcane radiation]] 
+		- The [[Blind Beholder]] do have treatment for this
+			- Their is no one specific cure
+			- They have  a large library  of data for dealing with symptoms
+		- [[Trevor]] wont tell us where it is
+			- it is not in the [[Blind Beholder]]'s interest
+			- we have pillaged their sites too much
+		- I argue we have helped them enough they should help us
+			- [[Geros]] argues with [[Trevor]] for a long time
+- We head to the [[catacombs]] 
+	- We find the offshoot building from the cathedral with thin spiral staircase
+		- [[Trevor]] gave us the key
+	- [[Reginald]] leads the way and we come to a large stone door with something written in [[primordial]] 
+		- [[Geros]] pulls out a live rat from his bag of holding
+			- The rat is affected by some blood magic based spell that is not [[mutagen]] 
+			- The rat is dropped and picked up by [[Aben]] 
+		- Those who know [[Sylvan]] can read ''Allu''
+		- Those who know [[Abyssal]] can read the word ''Thor''
+		- A [[crest]] on the door divided in two so you can still open the door
+			- [[Geros]] draws the symbol
+		- [[Jadaya]] writes in the dust "[[Jadaya]] is here"
+		- The walls change, on the left and right hundreds of stone coffins with corpses inside
+			- a number are opened 
+				- left side 80 open and not filled
+				- After that a bunch that are
+			- Dates go back thousand and thousand of years
+			- [[Wesley]]
+				- Buried  with the formula of immortality he had finally cracked
+				- The parchment is gone it is dust where the parchment decayed 
+				- [[Griffin]] had said in the past that this person was murdered in a similar fashion to [[Hector]], previously
+				- Most recent corpse
+			- [[Tyler]] Anderson 
+				- Has a short coffin ready for them
+				- presumably next to die
+			- Lots of cool notes on the coffins, 
+				- very long life stories that show their accomplishments
+			- They hall have slightly singed clothings and fractured bones
+				- Every single body was killed by a [[gun]]shot wound
+			- Even by elfin standards not one person could be old enough to have killed all these people
+			- [[Aben]] senses we need to climb the stairs at the other end
+			- Find long [[golden hallway]]
+				- A skeleton with the porters guild
+- [[Sans]] 
+	- The skeleton in a blue sweater
+	- Sans tries to attack [[Geros]] and fails
+	- teleports to the center of the room and summons a large dragon skull that blasts out
+	- I shoot at him and he teleports a foot to the side, but the arrow hits his clothes
+	- I fail a dexterity save again
+		- I fall towards the ceiling 
+		- I shoot my [[grappling hook]] to [[Sans]] and miss but stay suspended 20 feet above him
+	- dragon skulls appear and fire lasers forward
+	- [[Aben]] casts [[blur]] on himself
+	- [[Sans]] tries to hit [[Alisha]] with a slipper, does zero damage, then dies
+	- [[Geros]] gets the [[teleportation robe]]
+	- [[Reginald]] takes [[Sans]] skull
+		- The rest turns into bone dust and [[Geros]] collects it and gives it to vial
+
+Previous Session: [[Session 43]]
+Next Session: [[Session 45]]

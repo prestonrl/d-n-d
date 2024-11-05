@@ -1,0 +1,1 @@
+[[Jadaya]]'s horse bought in [[New Victoris]]

@@ -17,7 +17,7 @@ Can work the [[access point]]'s for the [[Blind Beholder]]
 
 Ultimately killed [[Daefaren]] to use his life force for [[Hemocraft]] to help heal himself
 
-Was the plan for the [[Blind Beholder]] to take care of [[Sylas]]'s [[phylactery]] before the [[Plan T]] memory wipe happened.
+Was the plan for the [[Blind Beholder]] to take care of [[Sylas]]'s [[phylactery]] before the [[Plan H]] memory wipe happened.
 
 [[assignment paper]]
 
@@ -31,6 +31,7 @@ Holds the ash of both [[Daefaren]] and [[Sylas]] in vials on his belt
 
 Was infected by [[mutagen]] 2 months before [[Sylas]] was released in the [[Dungeon outside Shannon]] by [[Perrin]]
 
+Has [[teleport]]ed  twice. Once out of a burning house. Once out of the prison during the [[Aurum Briar Party]]. This ability came from [[Fey Touch]]
 
 5 ft 11 in
 skinny
@@ -42,8 +43,13 @@ lots of scars and puncture wounds on arms
 scarred neck
 Strange aura
 Can read [[Abyssal]]
+Wears a [[Blind Beholder]] Field Agent uniform
 
 [[artificer]] class
 weirdly not surprised by everything
+
+Left arm is taken by the [[Assimilator]]
+
+Has the potential to become a [[lich]]
 
 Played by: Demetrius 

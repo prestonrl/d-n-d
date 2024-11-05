@@ -12,6 +12,7 @@
 - Moved [[automaton]] to the [[apothecary]] with [[Amasthesia]] and [[Tristy]] 
 - Found [[Tucker]] and killed the wolf preying on him took him back to [[Marzia]] 
 - Tracked [[Cultists]] and found [[Dungeon outside Shannon]] with the help of [[Bubbles]] translation of runes
+	- [[Bubbles]] works at [[Arcane Commodities and Oddities]]
 - Encountered [[Flicker]] one [[Cultists]] and defeated him with the help of the ladies from the [[apothecary]] 
 
 Recap: [[Session 1 Recap]]

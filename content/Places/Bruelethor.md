@@ -8,3 +8,4 @@ This was the ancestral home to dragons, then the [[dragonborn]]s kicked them out
 
 So [[Atlas]] worked on recruiting the [[Cultists]] of the [[Circle of Embers]] so that he could retake [[Bruelethor]]
 
+A magical phenomenon of a beacon of some sorts called the dragons here in the first place.

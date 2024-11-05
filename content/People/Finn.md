@@ -13,3 +13,5 @@ Is a [[werewolf]] and had been infected with [[Mutagen 2]] and had a hybrid were
 [[Finn's banishment]] 
 
 Leaves the party through teleportation circle with [[Theodore]] to join the [[Order of the Lycanthrope]]
+
+Infected by [[Theodore]] of both [[lycanthropy]] and [[shadowfell]]. Could be cured of one and not the other.

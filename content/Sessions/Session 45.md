@@ -1,0 +1,108 @@
+Current Date 2/19/79
+
+- We investigate the dust of the body of [[Sans]] inside the cathedral
+	- Two [[Tome of Communication]]s are found and given to [[Aben]] and [[Alisha]]
+	- Two [[sending stone]]s are also found, I put them in my bag
+	- [[Aben]] finds a tarot [[card]]
+		- Comic Sans Royal Judge of the Underground
+			- It came from a magical item
+				- Could be similar to the Deck of Many Things
+			- Was created by a spell in [[primordial]]
+	- The [[mutagen]] magic is no longer detectable from this area
+	- We are surrounded by dirty stained glass
+		- No recognizable figures or gods in the glass
+		- Just decorative and symbolic
+		- Pinkish Red is featured more than any colors
+			- Not fiery 
+	- [[Geros]] prays to find what god this cathedral is for, but only gets silence
+- [[Geros]] opens the cathedral door
+	- We have a rock, paper, scissors match
+		- I win
+- So we go to [[Tyler's Tavern]]
+- We tell [[Tyler]] that those who targeted [[Hector]] are targeting them next
+	- [[Tyler]] get drinks for the conversation
+		- [[Hector]] was there when [[Wesley]] talked about their immortality solution
+	- [[Merryweather]] has seen some shit
+	- [[Imogen]] is [[Merryweather]]'s sister
+		- Tells about the [[ornate silver sword]] that [[Merryweather]] ordered
+		- [[Aben]] asks if [[Wesley]] was known 
+			- [[Wesley]] was a professor at [[Harker University]]
+				- [[Reginald]] had Intro to Arcane Artifacts with him
+			- Helped enchant some of the weapons at the [[Colosseum]]
+			- [[Wesley]] died a little after [[Reginald]] finished his course
+		- Doesn't know if [[Hector]] and [[Wesley]] worked together
+	- I ask [[Griffin]] for more details of who they saw with a [[gun]]
+		- they have no memory of anything else, 
+		- we had to spell that memory out of them
+	- [[Merryweather]] let it slip that they are a [[werewolf]] 
+		- [[Imogen]] was there and knows 
+	- The night of the murder [[Merryweather]] heard a loud noise,
+		- They are a neighbor to [[Hector]] and went to investigate
+		- Saw the body and involuntary shifted to [[werewolf]]
+		- woke up back at the house
+	- Being [[werewolf]] is punishable by death at the [[Colosseum]]
+		- Wanted the sword in case of emergencies
+	- [[Geros]] does a [[Paladin]] thing and finds that the killer is in the tavern!
+		- [[Geros]] blocks the door with a table 
+		- I ask [[Tyler]] about [[Quinn]] who lives at the apex and comes down here
+			- They wrote the story for [[Wesley]] that how they got the journalist job
+				- Killed in the lecture hall
+					- It was empty at the time, 
+					- conflicting descriptions of final blow, but sword slash through the back
+	- [[Aben]] shows [[Keith]] the [[teleportation robe]] with the porter symbol
+	- Sans owned it, old weathered to hell
+	- [[Jadaya]] hires [[Keith]], a member of the [[porters guild]] so we can have someone help us teleport
+	- I want to see if anyone in the tavern will react and show they know what a gun is.
+		- I ask loudly if [[Keith]] owns a [[gun]]
+			- I hear from behind someone recognize the name and choked on their drink
+		- [[Griffin]], [[Merryweather]], [[Imogen]], [[Keith]] all have drinks, none of them choked on the drink 
+		- [[Geros]] slams maul down and asks the killer to step out or he will start killing people
+			- I have [[Keith]] teleport [[Geros]] outside the door 
+		- [[Quinn]] the journalist has a flask 
+			- [[Jadaya]] puts it together that it is [[Quinn]] and she points him out
+				- [[Quinn]] has a smirk spreading
+			- [[Alisha]] cast hold person to restrain him
+			- [[Quinn]] says we are not connected and this is not our story
+				- Asks if we really knew [[Hector]], 
+				- Claims to have killed them at the hight of his career 
+					- Says the rest of [[Hector]]'s life would be horrible
+						- In a way that makes it sound like [[Quinn]] thinks they can view the future
+				- Ends life here because life begins anew
+				- Warns us to not keep fighting after our story is done
+			- Said they didn't kill all in the [[catacombs]] but they continued the work of those who came before them.
+	- [[Quinn]] bolts for the door and makes it outside
+		- I try to shoot the [[grappling hook]] at [[Quinn]] but I hit [[Merryweather]] in the arm
+		- [[Jadaya]] has [[Keith]] teleport her outside in front of [[Keith]] and she grapples him
+			- The flask drops out
+		- [[Reginald]] casts wall of fire
+	- [[Quinn]] monologs again
+		- Talks about
+			- A Widow loving the world again,
+				- [[Fiona]]
+			- A child learning the magic of their father
+				- [[Wyatt]]
+		- Tells us we have no part in this story
+	- He disappears 
+- [[Jadaya]] gets a drop of [[dwarf alcohol]] to use as poison 
+- The flask of [[Quinn]] is where [[Jadaya]] left it
+	- it is full of [[red potion]]
+- [[Merryweather]] tells us [[Quinn]] knew he was a [[werewolf]] and used this as blackmail
+	- [[Merryweather]] had known who the killer was
+- [[Aben]] asks [[Merryweather]] if he is interested in the [[Hemocraft]] way to control [[lycanthropy]], but he declines
+- We go to [[Fiona]] to give her the news
+	- [[Wyatt]] answers and fetches her and she gasps, 
+	- we tell her about [[Quinn]] 
+	- She gives 600 gold 
+		- It is the vast majority of what was paid for the [[ornate silver sword]]
+- We got to [[Trevor]] 
+	- They are writing documents for [[Chester]]
+		- They are renting this building from him
+	- Reginald puts the skull of [[Sans]] on the table and relay what happened
+	- [[Geros]] gets [[Trevor]] to say thank you
+- We go back to the [[Cottontree Manor]] and [[Geros]] prays to the [[maul of the pantheon]] 
+	- We take long rest
+	- [[Aben]] takes some of [[Geros]] blood to investigate the [[arcane radiation]] poising 
+		- [[Loxodon]] blood is viscous 
+
+Previous Session: [[Session 44]]
+Next Session: [[Session 46]]

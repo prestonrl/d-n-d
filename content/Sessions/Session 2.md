@@ -6,7 +6,7 @@
 	- Fought [[animated armor]], [[mimic]], [[mutated spider goblin]]
 	- Picked up [[Clockwork Amulet]], [[Thrall Blade]], [[Bag of Holding]], [[Magic Lantern]]
 	- Did some puzzles
-- Asked [[Bubbles]] for help with knowledge for a puzzle 
+- Went to [[Arcane Commodities and Oddities]] and asked [[Bubbles]] for help with knowledge for a puzzle 
 - Unlocked final chamber of [[Dungeon outside Shannon]] where the [[skeleton]] of [[Sylas]] sat on throne
 - [[skeleton]] dropped [[Mutagen 3]] vial from its chest 
 - Fought ~~[[Flicker]]~~ again (retconned, now as [[Crackle]]) 
