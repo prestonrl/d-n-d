@@ -4,3 +4,4 @@ associated with [[Cultists]]
 
 At least 11 of them
 [[Flicker]] is the 11th, now 10th after [[Cryomancer's Keep]] [[dragon 2]] was frozen
+8 left

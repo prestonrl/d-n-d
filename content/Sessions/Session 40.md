@@ -61,7 +61,7 @@
 - [[Madeline]] wants to go back to look for [[Alex]]
 - [[Basil]] pulls me aside and asks if i can get a plush rat from [[Madeline]] house for her in the [[Crucible]]
 	- Me [[Jadaya]] and [[Alisha]] go to [[Madeline]] house to pick up the plush and groceries
-	- a red robed [[slender cultist]] ducks outside the window
+	- a red robed [[Slender Cultist]] ducks outside the window
 		- They jump back over the railing and disappear without a trace. 
 - We explore the [[Crucible]] more
 	- I go into [[Arcane Commodities and Oddities]] #2

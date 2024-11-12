@@ -39,3 +39,4 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - Minor Healing Muffins
 - [[water books]]
 - [[sending stone]] 
+- 1 Aben vial of [[paralyzing vial]]

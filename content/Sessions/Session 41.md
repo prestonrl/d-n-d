@@ -34,7 +34,7 @@
 		- The [[Archdruid]] flys off giving us damage when taking off 
 	- I cast cure wounds for [[Alisha]]
 - [[Elias]] is the only remaining member of the caravan alive
-- The [[slender cultist]] is still watching us from afar with floppy ears
+- [[Slender Cultist]] is still watching us from afar with floppy ears
 - [[Geros]] cast command and it turned into a small creature and runs away
 - [[Trevor]] sent [[Elias]] here to be away from triggering memories since he had his memory wiped
 	- Was going to work with associates at Harker University

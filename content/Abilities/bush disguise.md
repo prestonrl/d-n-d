@@ -1,0 +1,1 @@
+[[Jadaya]]'s disguise outfit she purchased at [[Adventure World]]. Gives her the appearance of a bush.

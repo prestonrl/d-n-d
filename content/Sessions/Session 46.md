@@ -1,0 +1,119 @@
+Current Date 2/20/79
+
+- [[Reginald]]'s father [[Chester]] is going to get [[New Victoris]] today
+	- [[Reginald]] is having a panic attack over breakfast
+	- [[Geros]] wakes from sleeping in the study and is a bit nauseous from the [[arcane radiation]]
+		- But notably did not have any dreams
+	- [[Aben]] spots the vial of [[Geros]] blood has changed slightly and has gold colored residue on the bottom of the vial
+		- [[Alisha]] takes a look at it 
+			- If [[Geros]] blood stops flowing it will solidify and he will turn into a divine statue
+	- [[Seraphina]] doesn't know the difference between archeology and grave robbing
+	- [[Reginald]]'s mother wanted a daughter and his father wanted him to go into accounting
+	- [[Aben]] wants to shop for lab kits to analyze [[Geros]] blood
+		- Most of the party goes to  [[Adventure World]] in [[Britain]]
+			- [[Jadaya]] gets a [[bush disguise]] camouflage thingy
+			- [[Geros]] gives the [[Cultists]] masks to the others to use as disguise 
+			- I get studded leather armor and increase armor class to 16
+- We go to [[Tyler]] and make sure he isn't dead from [[Quinn]] 
+- We meet up with [[Reginald]] and [[Alisha]] at the eastern gate and outside there is a quaint town outside the wall
+	- [[Reginald]] sees his own crest on every building
+		- His family business is real estate
+			- People will be stuck paying these buildings off until they die
+			- This is where [[Chester]] gets his money
+	- An [[Archdruid]] is demonstrating some magic to the [[Slender Cultist]] 
+		- Genuinely teaching some fire magic
+		- Armor class +22
+		- Strength +10
+		- Wisdom +2
+		- Intelligence +4
+	- [[Geros]] talks to the [[Archdruid]] and the [[Slender Cultist]] and tells them he was looking for them
+		- [[Wylhen]] is the name of the [[Archdruid]]
+	- [[Aben]] and I go at the same time with the [[paralyzing vial]]
+		- [[Aben]] takes the slender cultist and they pass out
+		- I go invisible with my new ability Nature's Veil and aim for [[Wylhen]]
+			- They sense me and swat me away
+			- I try again with the vial and fail
+	- [[Wylhen]] grabs the [[Slender Cultist]] and teleports them away
+		- shift into the [[Embers' Draconic Wildshape]] and they head to the caravan
+	- [[Seraphina]] uses teleportation circles to bring the caravan to us
+		- The six carriages get through the gate, the dragon turns around 
+		- The carriage driver asks for Lord [[Wylhen]] 
+			- They had permission to come in!
+	- [[Geros]] still attacks after because he is mad at being knocked to the ground when the dragon took off
+	- [[Wylhen]] turns back to human form and floats down
+		- But hey fall on their face when their foot hits the wall
+		- Walks up to Reginald and asks who they are
+			- When he says [[Reginald]] he says no
+				- Says [[Reginald]] is dead, got kidnapped after [[Shenandoah]] 
+				- Says we couldn't have met with [[Atlas]] no one could have met with him
+					- Thought that [[Atlas]] met with [[Chester]] because all they heard was Lord Hightower
+			- He apologizes , and pulls out a scroll and gives it to [[Reginald]] 
+				- This slip entitles the use one [[favor]] inconsequential one that cannot harm anyone from an [[Archdruid]]
+		- After [[Geros]] tries to hug him he disappears with teleportation 
+- The caravan keeps going the final carriage stops
+	- Lord Chester requests that Reginald returns to the estate immediately, and that his hired help can join 
+		- We take some offense to being called hired help, but hope we can get some wages
+	- We get in the carriage 
+		- It makes a right, turning north to the [[Hightower Estate]]
+			- The estate has a large lawn surrounded by woods
+				- There is a pool house where [[Reginald]] lives with 5 extra rooms
+				- There is also a separate guest house
+		- We go to the pool house and [[Reginald]] shows his stash of alcohol and drugs
+		- [[Aben]] sets up a mini lab in the pool house shed and I supervise 
+			- He takes out he [[arcane radiation]] infected blood of [[Geros]] with the [[glittery gold residue]]
+				- I donate some of my own blood to see how healthy blood mixes with it
+					- Once mixed there is more glitter
+					- We find I have the same blood type as [[Geros]]
+			- [[Aben]] request to be able to mix the blood with the [[mutagen]]
+				- He specifically requests to do just a small amount
+					- Suggest to not inform [[Alisha]] to the extent of the experiment
+						- I do not agree and I go and inform [[Alisha]]
+				- [[Alisha]] joins to supervise
+					- [[Aben]] puts one small drop of [[mutagen]] into the mixture of [[Perrin]] and [[Geros]]'s [[glittery gold residue]] infected blood
+						- We are blinded by a white light
+						- We all take 47 damage
+						- The shed blows up
+							- The shockwave expands out and stops
+							- Everything implodes back in and the [[mutagen]] is gone
+						- [[Geros]] takes damage as well
+							- Was not near
+								- Because it was his blood he takes the damage
+						- [[Aben]] can feel he did something bad, 
+							- Feels he cause major damage to the fabric of magic
+								- It has been disrupted in a way we cannot comprehend 
+						- [[Alisha]] can also feel the damage to the fabric of magic
+							- And some divine effects
+						- They are not the only people in the realm to feel something has changed
+				- I sweep up the rubble
+					- [[Miss Crumpet]] was almost hit by a piece of roof
+- When magic dies accountants will take over
+	- Vague reference to the events of this campaign 
+- The [[Hightowers]] have an outpost south of [[Shanon]] 
+- [[Aben]] takes more blood from [[Geros]] 
+- [[Geros]] makes trouble trying to get into dinner early
+	- We go to dinner
+		- [[Jadaya]] is drunk in her [[bush disguise]], but makes it in
+		- [[Trevor]] almost trips over her as he storms right to [[Aben]]
+			- Says, "[[Aben]] what the fuck did you do? What the ruck did you do to [[Sylas]]?"
+			- [[Aben]] says it is his fault because he didn't help when we asked for help with [[arcane radiation]]
+				- [[Aben]] details the experiment and what happened
+					- [[Trevor]] asks for the source of the arcane radiation
+						- Is informed about the [[glittery gold residue]] blood that petrifies 
+					- Pure dread washes over him 
+					- A light shaking at our feet
+					- [[Trevor]] says, "You have given a blood mutant ([[Sylas]]), the blood of the gods!"
+						- None of us are safe anymore 
+					- Says to [[Geros]],  ''You are never getting another apology out of me again!''
+		- I make a passing remark to [[Alisha]] that I'm glad I didn't listen to [[Aben]] when he asked me not to tell her about his experiment
+			- [[Alisha]] snaps and says, "You are right, this is my fault. I will end it."
+				- She draws her sword and swings straight for [[Aben]]'s neck and hits
+			- [[Reginald]] pistol whips [[Aben]] and nocks him out
+				- he yells at [[Alisha]] and yells in rage:
+					- ''I will not have murder in my house!"
+			- She is persuaded to stop for now
+
+- I still have the [[paralyzing vial]] 
+
+
+Previous Session: [[Session 45]]
+Next Session: [[Session 47]]

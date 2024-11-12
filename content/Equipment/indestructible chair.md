@@ -1,0 +1,1 @@
+The chair that [[Geros]] keeps in his bag of holding that is made by the LD brand. Somehow indestructible and strong enough to hold a [[Loxodon]].

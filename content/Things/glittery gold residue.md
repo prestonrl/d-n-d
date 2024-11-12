@@ -1,0 +1,1 @@
+The effect that [[arcane radiation]] and divine energy has on [[Geros]]'s blood. If the blood slows down and stops it petrifies. Turns into a divine statue.

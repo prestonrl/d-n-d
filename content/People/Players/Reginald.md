@@ -5,6 +5,8 @@ Was abducted by [[Circle of Embers]] to assist them in decrypting text and exami
 
 Has a [[eldritch cannon]] 
 Engaged to [[Seraphina]] 
+Raised by [[Miss Crumpet]]
+Father is [[Chester]]
 
 
 A human played by Jacob Varon
