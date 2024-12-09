@@ -18,7 +18,7 @@
 			 - in [[Abyssal]]
 		- copy [[lightweight division schematics]]
 			- Geros has a copy too
-- [[Geros]] gives more stuff to [[Wilbur]] at [[Willbur's Ward]] to make magical items
+- [[Geros]] gives more stuff to [[Wilbur]] at [[Wilbur's Ward]] to make magical items
 - When [[Flicker]] wakes up the [[Cultbusters]] and the [[changeling]]s interrogate  him
 	- [[Flicker]] says they were not in the [[Dungeon outside Shannon]] on purpose and that it was a nice coincidence
 	- Confirms that [[Atlas]] and [[Sylas]] knew each other and implies the two statues in [[Dawntrail]] are [[Atlas]] and [[Sylas]] 

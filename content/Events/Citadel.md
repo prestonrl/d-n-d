@@ -10,3 +10,5 @@ Showed a vision of the end, that [[Atlas]] is trying to avoid by having his [[Cu
 It ruptured and was one of the three events that caused the [[calamity]]. 
 
 [[Atlas]] is rebuilding it in [[New Victoris]] as one last try to save people. It wont solve the [[calamity]] but would help people escape the [[divides]]
+
+Needs four [[Channeling Tower]]s throughout the city. Each tower is assigned a god to channel through the citadel. 

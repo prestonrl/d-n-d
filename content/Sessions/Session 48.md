@@ -1,0 +1,130 @@
+- In the [[Hightower Estate]] Manor
+	- Behind closed door
+	- [[Chester]] prepares to make intensions known to his only son
+	- Entry hall 
+		- Sword being drawn and blood hitting the floor
+			- [[Alisha]] and [[Aben]]'s confrontation 
+		 - [[Chester]] asks what is going on in here
+		- [[Geros]] talks to [[Trevor]] and has no idea what is going on
+		- [[Geros]] kneels down to heal [[Aben]]'s neck
+		- [[Alisha]] has backed down
+		- [[Chester]] asks [[Reginald]] who the hell he brought into the house
+		- [[Trevor]] walked out the door, [[Geros]] drags him back in
+		- [[Chester]] asks for us to not speak and only respond when spoken to
+			- [[Reginald]] gets mad at him speaking to [[Seraphina]] that way
+			- [[Chester]] doesn't want [[Seraphina]] speaking at all
+		- [[Jadaya]] is still drunk and disguised as a bush
+	- [[Atlas]] sits at the head of the table drinking the [[tea]]
+		- [[Caroline]] is [[Reginald]]'s mom, there at the top of the table as well
+		- [[Edith]] is a stranger to us sitting next to her 
+	- Dinner is brought 
+		- [[Geros]] is vegetarian, but likes quail and snake
+		- [[Atlas]] holds a cast iron key at the head of the table
+			- Says he has a proposition for us
+				- He is working on a project
+				- something he needs that we all have
+				- He needs divine levels of friendship
+					- [[Geros]] shows his maul 
+						- Explains to [[Atlas]] that [[Wilbur]] made it
+							- [[Wilbur]] refuses to talk to [[Atlas]] as well
+						- [[Geros]] says he has to go with the maul
+					- [[Atlas]] suggest destroying the maul 
+			- Hightowers helped [[Atlas]] a couple hundred years ago
+				- The [[Citadel]] is lager than just the central structure at the [[apex of the world]]
+					- [[Channeling Tower]]'s
+						- four channeling structures throughout the city connect it
+					- The first one was made by the [[Hightower Estate]]
+					- A tower is being constructed in [[Tarion]]
+					- Citadel is powered by the gods
+						- Each of the 4 [[Channeling Tower]] is assigned a god
+			- [[Geros]] asks if [[Atlas]] could cure him of the [[arcane radiation]] in exchange for the [[maul of the pantheon]]
+				- Atlas cannot cure him
+					- To cure [[Geros]] we need to remove all of his blood, and replace it with another [[Loxodon]]'s blood
+					- Would need to be kept in a dead zone for magic to keep it from coming back, forever
+			- [[Geros]] tells [[Atlas]] that [[Sylas]] has god powers now
+				- [[Trevor]] is concerned about [[Sylas]] having an [[ichor]] of god power
+					- [[Trevor]] is pulling up something from his collar 
+						- pushes a small sigil and begins to teleport 
+						- The teleportation spell is counter-spelled by [[Edith]]
+					- [[Atlas]] is stifling giggles
+					- [[Jadaya]] and [[Perrin]] try to tell [[Geros]] that [[Sylas]] and [[Atlas]] are a couple
+						- [[Atlas]] has a card from [[Jadaya]]'s [[Matchmaking]]
+				- [[Geros]] lets [[Trevor]] go 
+					- [[Jadaya]] gives me the poison from the bar, the [[dwarf alcohol]], I give it back
+				- [[Geros]] finds that [[Atlas]] is an old acquaintance of [[Bimuna]]
+					- has connection to the [[maul of the pantheon]]
+					- [[Atlas]] says [[Bimuna]] would be a distant ancestor of [[Geros]]
+						- [[Geros]] was found on the statue of [[Gizro]]
+		- [[Chester]] wants to keep something secret
+			- [[Reginald]] tells his father he got married
+				- This gets a slow cold stair from [[Edith]] Westerna
+						- She asks to who
+				- [[Chester]] asks if he has any idea what he has done
+			- [[Chester]] tells [[Atlas]] he was assured they would bring [[Reginald]] back safe and sound
+				- Reginald realizes that [[Chester]] and [[Atlas]] together did the kidnapping 
+			- [[Chester]] tells his son he has a duty and responsibility to stay home
+				- [[Reginald]] responds with "Duty to fuck off", and says he can live his own life
+				- [[Chester]] says he will not be around forever
+					- [[Reginald]] says for that he is eternally grateful
+			- [[Atlas]] says the one that I mentioned at the dig site is the one sitting next to me 
+			- [[Chester]] says business must be attended to for him as a Hightower
+				- [[Chester]] leaves the table and walks off towards the kitchen
+			- [[Edith]] turns to [[Aben]] and heals him 6 hit points and [[Geros]] takes damage 
+				- Geros talks about [[Aben]] knowing blood magic
+					- [[Edith]] is on the carnivore diet
+		- Chester thanks [[Edith]] for the gift and asks if anyone wants wine 
+			- Chester pours wine for most people and gives a toast
+				- Says pride to serve as head of this household
+				- Says we will not last as long as hope
+				- Toast to what they managed to accomplish in their time 
+			- [[Alisha]] takes a sip of wine for the first time
+				- [[Alisha]] resists the whatever it is in the drink
+				- [[Jadaya]] is still drunk, nothing has changed
+			- [[Chester]]'s white of eyes turn red and he collapses
+				- [[Atlas]] freezes with eyes frozen open
+					- They are unconscious, but any slight bit of damage will snap them out of it
+			- It was [[Edith]]'s wine, 
+				- she is still conscious
+			- Footsteps enter at the back of the room
+				- [[Miss Crumpet]] comes in
+					- looks scandalized 
+						 - She can see through [[Atlas]]'s polymorph to his true dragon form
+				- [[Reginald]] shows [[Seraphina]]'s ring and says he is no longer her problem
+			- [[Edith]] says the wine was a personal request from [[Chester]] 
+				- It contains a poison 
+					- Strong but difficult to detect
+					- Hard to make
+					- Red Wine 
+						- [[Westerna Vineyards bottle 4581]]
+				- [[Aben]] takes the bottle of wine, about half full
+					- [[Jue Lee]] will take care of it
+		- [[Jadaya]] gets some chocolate cake from [[Miss Crumpet]] 
+			- [[Geros]] takes the key from [[Atlas]] and I put it in my bag of holding 
+			-  [[Geros]] is looting
+				- Gets pocket-watch from [[Chester]]
+					- gives it to [[Reginald]]
+				- [[Atlas]] wears a ring on the left hand, spell with no corrosion, has small green emerald in it
+			- [[Geros]] closes [[Atlas]] eyes
+		- [[Aben]] gives [[Edith]] his number and says great poison and leaves with us
+- Down to secret door
+	- The door opens to a spiral staircase going up
+		- We go up the high tower of the [[Hightower Estate]]
+			- Come to an indoor chamber at the top of the tower
+				- in the center of the room there is a pedestal 
+					- [[black orb]] on it
+				- Light comes through small holes in the ceiling 
+				- [[Geros]] picks it up and black tendrils go up his arm
+					- The skin beneath his eyes darkens and becomes dryer
+					- [[Geros]] puts it down, tendrils  recede but eyes are not changed back
+				- Geros identifies darkness
+					- not an illusion 
+						- the rest of the room goes dark
+				- I check if it is [[Bimuna]] 
+					- I sense it is connected to the same plane
+						- but not the embodiment of [[Bimuna]] 
+					- I say [[Bimuna]] and glowing eyes appear and I disappear
+
+
+Previous Session: [[Session 47]]
+Next Session: [[Session 49]]
+

@@ -6,6 +6,6 @@ Later showed up after the bandit attack in [[Session 6 Recap]] said he was looki
 
 Eventually hired by [[Perrin]] to work at [[Cultbusters HQ]] in the library 
 
-Has one arm completely covered in solid blue ice
+Has one arm that was completely covered in solid blue ice. Now the ice has been healed, the arm still has blue patterns and markings making it look like a nice sleeve tattoo
 
 Is looking for [[Minerva]] 

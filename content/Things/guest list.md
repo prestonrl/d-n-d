@@ -17,8 +17,8 @@ Diana Briar
 Edmund Aurum 
 Rohana Aurum 
 Valeria Aurum
-Fenix Westerna
-Jonathan Westerna
+[[Fenix]] Westerna
+[[Jonathan]] Westerna
 [[Xavier]] Trinkets
 
 Exceptions:

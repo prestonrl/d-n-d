@@ -7,6 +7,8 @@ Associated with [[Hemocraft]]
 Island in the middle of the room.
 Tables line the wall. 
 
+Very clean
+
 Oil container tipped over with blood residue.
 
 - Lots of documents
@@ -21,3 +23,6 @@ Oil container tipped over with blood residue.
 - Jar filled with dirt and a plant
 	- Snapdragon flower
 - 3 bodies on the table
+
+Smells stale like charred meat
+The stain from the flesh [[Assimilator]] mark the place, even though [[Siri]] has tried to clean it

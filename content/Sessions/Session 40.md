@@ -51,7 +51,7 @@
 			- she teleported out
 		- I introduce her to the group.
 		- I ask her about
-			- The [[Ichor]]
+			- The [[Ichor City]]
 				- Where she is from
 			- The [[Silent Colossus]]
 			- [[Old Victoris]]
