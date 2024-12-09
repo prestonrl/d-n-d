@@ -36,7 +36,7 @@
 - I go to door that leads to top of cavern and there is a cave goblin with milky white eyes and an [[elf]]. The goblin is [[Wilbur]].
 - We convince [[Wilbur]] to go with us because we promise to spend money and he jumps out the window to go to the store
 - I take [[Bailey]] and ride down the outside of the tower
-- We all go to [[Willbur's Ward]], there is a machine that has panels and dials and looks like [[Blind Beholder ]]
+- We all go to [[Wilbur's Ward]], there is a machine that has panels and dials and looks like [[Blind Beholder ]]
 - [[Wilbur]] takes magical items for vouchers to make new magic items
 - [[Geros]] tries to make a magical maul
 - [[Reginald]] shows the piece of the weapon making his head ring, he puts it together with the [[sword of incomprehensible screaming]] 

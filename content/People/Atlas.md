@@ -3,6 +3,7 @@ A mysterious ancient figure named in the note by the [[Circle of Embers]] that w
 Wears white suit
 Has white hair
 Red cloak
+6 ft flat in human form
 
 [[Crown]]
 
@@ -26,3 +27,5 @@ Tried to stop the [[calamity]] of [[Old Victoris]], but was convinced with [[Syl
 Has spent the time since the fall of [[Old Victoris]] amassing the old guard that used to patrol the city, the [[Ember Guard]], and creating the [[Circle of Embers]] so that the their plans of destroying everything could be brought about.
 
 Has power of the god [[New Flame]]. But [[Atlas]] is one fifth the power.
+
+Wears a ring with a small green emerald on the left hand (wedding ring from [[Sylas]])

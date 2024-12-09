@@ -3,3 +3,5 @@ A shorter fluffy [[Tabaxi]]
 Good at going under the radar
 
 Adept at killing [[Cultists]] with a pocket knife
+
+High energy

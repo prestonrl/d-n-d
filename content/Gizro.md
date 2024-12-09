@@ -1,0 +1,1 @@
+The statue that [[Geros]] was found on as a child

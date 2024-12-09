@@ -6,3 +6,5 @@ Set ablaze and death toll in the thousands
 The infrastructure in place for fires failed
 Dark shapes seen above the clouds
 Investigation about inside job
+
+Used to have hot springs

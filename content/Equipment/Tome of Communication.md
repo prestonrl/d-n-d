@@ -10,7 +10,7 @@ Owners:
 	
 Sister tome that was found in the [[ruins]] is currently held by: [[Geros]]
 Another tome found in [[Carthian Treatment Center]] that is held by: [[Jadaya]]
-At [[Willbur's Ward]] [[Reginald]] buys a Tome with an [[update lens]]
+At [[Wilbur's Ward]] [[Reginald]] buys a Tome with an [[update lens]]
 
 Can communicate with [[Trevor]] after he shared his tome number
 [[Wilbur]] has [[Geros]] number

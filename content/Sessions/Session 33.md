@@ -59,7 +59,7 @@
 - We go up stairs to a shabby wood wall with a small door and go through to an antique shop with an elf manning it
 - [[Gaylend Billows]] is the elf running the shop 
 - He has heard of the Bladeless family and is surprised by [[Aben]]'s presence
-- [[Willbur's Ward]] sells magic items next door 
+- [[Wilbur's Ward]] sells magic items next door 
 - [[Maw]] is strangely abandoned
 - [[Adventure World]] generic shop
 - Antique shop is called [[Blackbridge Antiques]]

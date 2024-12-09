@@ -1,0 +1,126 @@
+Inserted notes captured painstakingly by interviewing the [[Kenku]] [[Uther]] in relation to the events at [[Wilbur's Ward]]
+
+- [[Basil]] is at [[Cultbusters HQ]] making tea
+	- Hears a faint "Thump, thump thump"
+- [[Wilbur]], [[Madeline]], and [[Biri]] are also at [[Cultbusters HQ]]
+	- [[Biri]] 
+		- In her pajamas, a onesie of a dragon
+		- finished upgrade to the [[matchmaking hall]] and [[teleportation room]]
+- [[Sable]] is darting around like a dust devil
+	- [[Uther]] is making sure [[Sable]] isn't knocking over artifacts
+- [[Bruk]] is dealing with [[Ted]] 
+	- Thump, Thump, Thump
+		- from stairwell
+- [[Siri]] comes up stairs with a purple [[snapdragon plant ]]
+	- [[Siri]] finds [[Uther]] and asks to open the door 
+		- [[Uther]] just repeats it back to it
+- [[Wilbur]] is writing in the [[Tome of Communication]]
+	- [[Wilbur]] is trying to get [[Wilbur's Ward]] out of the sky
+		- his workshop that has been floating since the creation of the [[maul of the pantheon]]
+			 - [[Wilbur]] doesn't want to work with [[Geros]] ever again
+				-  Didn't know the gods to put in the maul were that powerful
+	- [[Wilbur]] says [[tenser's floating disk]] can maybe get him up to [[Wilbur's Ward]]
+	- [[Bruk]] asks if they can undo the [[maul of the pantheon]] 
+		- [[Wilbur]] doesn't want to talk to [[Geros]] about the consequences of the [[maul of the pantheon]] being undone
+			- which would be a large explosion
+	- Explains to the group that [[Feather Fall]] is part of the building of [[Wilbur's Ward]] itself 
+		- we could take [[tenser's floating disk]] up there to try and use [[Feather Fall]] to bring the building down
+- [[Siri]] falls down the stairs to the [[Laboratory]]and we hear shattering glass
+	- We hear [[Siri]] stuck trying to move
+	- [[Bruk]] finds [[Siri]] and sees the glass shattered and the [[snapdragon plant]] and dirt on the ground
+	- [[Siri]] is freaking out
+		- Crash detected 
+		- cleans the [[snapdragon plant]]
+			- Keeps repeating that this is very important
+		- Tries to put the plant back in the shattered glass
+	- [[Bruk]] thinks its strange that [[Aben]] is into gardening, but puts the plant on the table
+		- The plant is growing well for a plant that doesn't get much sun
+	- [[Basil]] knows about the magic of natural things
+		- Gets the feeling that natural magic wouldn't work on the [[snapdragon plant]]
+	- [[Siri]] refers to the [[snapdragon plant]] as [[Subject 4]]
+		- Siri's instructions for care
+			- the plants need 5 minutes of sunlight each day
+			- Water is optional
+			- [[Subject 4]] must be dealt with very carefully
+			- needs to be kept in containment
+			- Must go on third table
+	- The hatch to the chest cavity of [[Siri]]  is broken and ajar
+		- There is a vial inside with an unreadable note slapped on it
+			- It looks like thick water with sickly green swirl to it
+		- When asked about it [[Siri]] refers to it as [[Subject 5]]
+			- [[Subject 5]] is "errrr"
+				- information requests are blocked
+		- [[Biri]] grabs the vial and note
+			- Seems to be the key to [[Sylas]]'s immortality 
+				- May become " " if refined
+			- [[Siri]] is charged with keeping it safe
+		- [[Bruk]] solders the hatch shut with this vial in it back into [[Siri]]'s chest 
+- [[Uther]] asks for gold from [[Wilbur]] for help with the shop
+	- [[Wilbur]] promises something shiny
+- We get on [[tenser's floating disk]] go 800 feet into the sky 
+	- We all step into [[Wilbur's Ward]] 
+		- [[Biri]] looks for [[love potions]]
+			- [[Wilbur]] says they have been banned for the last 3000 years
+		- There is a [[Spell Cracker]]
+			- Failsafe lever behind
+				- When you hit it it cancels out all magic around and the house will fall
+				- This includes [[Siri]]
+		- [[Wilbur]] leads us to a door in the back to a room that is supposed to lead to a glyph library
+			- Only the [[Spell Cracker]] itself has access
+			- Wilber hasn't been back in 40 years 
+			- Locked door on the far side, one key in it and many various keys surrounding it 
+				- [[Siri]] pulls out the key in it and throws it away
+					- [[Uther]] tries to find it but can't
+				- [[Basil]] finds it 
+				- [[Uther]] mimics [[Bruk]] throwing keys out the window
+					- [[Amasthesia]] uses the sending spell to ask [[Uther]] to stop throwing the keys 
+		- [[Bruk]] goes to pulls the failsafe lever 
+			- [[Uther]] yells to [[Bruk]] mimicking [[Geros]] voice 
+				- Commands [[Bruk]] to not pull the lever
+				- [[Uther]] tackles [[Bruk]] and tells him ,''no'' in [[Geros]] voice
+				- Tells him not to kill [[Uther]]
+		- [[Bruk]] gives us 3 minutes to solve it and sits to smoke a pipe
+			- We don't see any key scratches 
+			- [[Basil]] goes "open Sesame" and it tries the door and it opens
+				- It opens if a key is not in it
+		- The Glyph Room is covered wall to wall with different spell sigils 
+			- We find [[Feather Fall]]'s sigil
+	- [[Basil]] pulls the failsafe lever and [[Siri]] goes down 
+		- We start falling and floating in the air 
+		- [[Uther]] and [[Bruk]] grab eachother so we can push off of eachother towards the ground when we need 
+		- [[Basil]] turns the lever back on
+		- [[Uther]] shoves [[Bruk]] to the ground 
+			- the magic field hasn't returned yet 
+		- [[Uther]] takes one fall damage due to [[Bruk]] catching them
+	- [[Bruk]] paints the sigil on the ground again in just regular paint
+- As a reward from [[Wilbur]] we get 5 common magic item vouchers
+	- [[Siri]] gets blood from Wilbur 
+		- Closer to squid than human
+	- [[Uther]] wants a legendary spell scroll to locate [[Minerva]]
+		- To get legendary spell scroll we need to get something from the north district
+			- [[Planer Astrolabe ]]
+	- [[Siri]] gets spider-climbing tread and rubber grippers
+	- [[Biri]] gets a set of 5 [[juggling balls]] that also teleport and gives advantage on performance checks 
+	- [[Uther]] gets a [[Deck of Some Shit]], pull a card and a random item comes out 
+- Leaving the shop we see a large tower under construction in [[Tarion]] 
+	- about 80 to 90 feet high
+		- A [[Channeling Tower]]
+	- right across the street from [[Cultbusters HQ]]
+	- The [[Cultists]] of the [[Circle of Embers]]are building the tower right next to [[Cultbusters HQ]]
+		- A number of people actively  working
+		- Some are standing over a completely limp body
+			- [[firbolg]] cultist is in a deep slumber
+				- It is the [[Slender Cultist]] 
+				- They were teleported here after [[Aben]]'s injection
+			- [[Bruk]] blows smoke in their face and it wakes them up
+				- They ask for their name
+				- [[Floppy]] is their nickname
+		- [[Atlas]] ordered a tower to help with the [[Citadel]]
+		- [[Bruk]] gets [[Floppy]] a cup of coffee 
+		- He looks for his map of [[Britain]]
+		- [[Floppy]] is from [[New Victoris]] 
+		- [[Basil]] asks if [[Floppy]] knows [[Alex]] 
+
+
+Previous Session: [[Session 46]]
+Next Session: [[Session 48]]
