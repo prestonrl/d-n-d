@@ -1,4 +1,99 @@
-
+- I am in darkness
+	-  I call to [[Bimuna]] and feel a godly force nearby
+	- I see a [[tarot card]] 
+		- Face has an ancient dragon on it, older than cultist
+		- The back is a simple ink pen
+	- I touch the card, nothing happens
+		- I attune to the card 
+			- I see a fiery hand holding me up in the darkness
+				- That was the [[New Flame]]
+		- I am transported back to the [[Hightower Estate]]
+- I am back in the tower and the [[black orb]] is glowing bright light
+	- The pedestal is broken 
+		- The [[black orb]] has a wisp from a crack leading from the tower to the bottom of the cellar
+	- [[Seraphina]] comes up the stairs with a book in her hands
+		- Book: A study of Old [[Bruelethor]] by Doctor [[James]] Cottontree
+		- says everyone is in the cellar 
+		- She takes me to the cellar and see signs the party the sign went through another doorway with two rooms labeled
+			- [[Miss Crumpet]]
+			- [[Jue Lee]]
+- I open the door to [[Miss Crumpet]]'s room
+	- Dank dark dungeon, moss and strange plants
+	- Center perfect stone replica of the dining room
+- The stone hologram [[dollhouse]] shows the past 
+	- Cannot hear audio 
+	- The magic seen in the past from [[Edith]] was Illusionary magic from the negative energy plane 
+- We use dollhouse time dial and follow [[Atlas]] 
+	- [[Atlas]] had a large cloak they put on a coat rack
+	- [[Edith]] opened the door for [[Atlas]] and [[Chester]] came from the side
+		- A purple crystalline substance on the hand of [[Edith]] as she shakes hands with [[Atlas]] 
+- We follow [[Edith]] backwards in time to [[Chester]]'s study
+	- She is trying to brace herself on a bookshelf
+		- This was when the explosion happened 
+	- [[Edith]] brought the book Romeo and Juliet with the bottle of wine
+		- [[Edith]] and [[Chester]] are discussing something about the wine 
+			- There was a small glass vial [[antidote]] on the table with the book and bottle of wine 
+				- The vial disappeared at some point during the shockwave 
+					- The vial fell into the shag rug below the table
+	- [[Edith]] is scratching out things in common books
+		- Gets to case of spell scroll tubes and pulls out
+			- [[The Horizon Accord]]
+	- She has  a pendant of a persons face with the eyes glowing yellow 
+		- See ancestral resemblance with Edith
+	- She arrived at noon, had a thick black parasol 
+		- She is for sure a [[vampire]]
+			- Good at ghostly and undead magic
+- Using the [[dollhouse]] we see [[Chester]] in [[Reginald]]'s old room in despair
+	- [[Chester]] moves to the dining room 
+		- Places draconic runes under the chairs 
+			- Some kind of explosives 
+			- Bargaining chip from [[Atlas]]
+				- Threat to hurt the people [[Chester]] cares about
+				- Blow us up to keep him in line
+- [[Edith]] is still holding the spell under the table 
+	- Her hand has [[Abyssal]] runes
+		- The spell is meant to disguise a person
+- We find [[Atlas]] was never here at the estate
+	- The person we though was [[Atlas]] is a [[dragonborn]] in disguise
+		- disguised by [[Edith]]'s magic
+- [[Reginald]] grabs his father and wakes him up
+	- Demands answers for the [[vampire]] and the poison 
+		- Chester asks for the [[antidote]]
+	- Says working with [[Atlas]] was a temporary arrangement 
+		- He wanted their business to end
+- The disguised [[Atlas]] at the head of the table frozen by the poison of [[Edith]] is a [[Circle of Embers]] [[Archdruid]]
+	- Geros cuts off the [[Archdruid]]'s hand and takes the fire ring
+		- [[Ring of Cauterization ]]
+- [[Reginald]] goes back and checks the [[dollhouse]] and sees when [[Caroline]] took the vial
+	- She examines it up to the light
+- [[Reginald]] gives the [[antidote]] to [[Chester]]
+- [[Archdruid]] slowly wakes up
+	- [[Jadaya]] uses know your enemy
+		- The dragon is 15 feet tall
+		- 256 HP
+		- 19 AC
+	- [[Aben]] uses mage hand to get another hand to shoot the [[electric rail cannon]] of [[Flicker]] from [[Geros]] bag
+	- I throw the [[black ink pen]] and use conjure barrage to hit the dragon with lots of pens
+		- [[Geros]] got hit by some of them as he was in the path
+	- [[Seraphina]] casts eye bite magic and puts it to sleep
+	- [[Reginald]], [[Alisha]], and [[Jadaya]] all assist [[Aben]] in using the [[electric rail cannon]] to max effect
+		- [[Alisha]] casts bless by throwing the symbol of the Earthmother 
+		- With all the assists [[Aben]] uses the rifle
+			- shoves the barrel of the gun in the [[Archdruid]]'s sleeping mouth and fires and finishes ii
+- Something falls from [[Seraphina]]'s pockets
+	- It was [[Elias]]'s red ring ([[ring for Alisha to find]])
+		- She had discussion with [[Trevor]] earlier 
+			- He left the ring behind
+		- [[Seraphina]] thought she  could do something with it to make things right
+			- She has gone through a lot of really traumatic events recently
+				- Thinks it is unfair that [[Elias]] could forget everything that has happened
+				- Planned to give the ring to him to recover [[Elias]]'s memories
+		- [[Seraphina]] gives it to [[Alisha]]
+			- it feels different slightly lighter
+			- Has a light dispelling enchantment on it
+		- [[Alisha]] and [[Reginald]] talk about the ethics of giving [[Elias]] his memory back
+			- Alisha says the [[Elias]] we know is not how he was growing up
+		- Opening [[Elias]]'s mind will give [[Sylas]] a way back in
 
 Previous Session: [[Session 48]]
 Next Session: [[Session 50]]

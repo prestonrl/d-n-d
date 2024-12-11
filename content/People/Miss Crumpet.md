@@ -1,3 +1,7 @@
 The woman who raised [[Reginald]] 
 His Nanny/Maid
-May or may not be a bog hag
+Is a [[bog hag]]
+
+Room is a dank, dark dungeon with moss and strange plants.
+
+Has a [[dollhouse]] security system

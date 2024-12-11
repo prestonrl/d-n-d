@@ -1,0 +1,1 @@
+The spell scroll taken by [[Edith]] from the [[Hightower Estate]] before the dinner with the [[Archdruid]] disguised as [[Atlas]]
