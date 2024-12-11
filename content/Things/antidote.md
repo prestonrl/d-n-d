@@ -1,0 +1,1 @@
+The small vial of antidote to the [[Westerna Vineyards bottle 4581]] poison. [[Chester]] was supposed to take this to save him from the poison that [[Edith]] placed into the wine.

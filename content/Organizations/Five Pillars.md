@@ -9,3 +9,5 @@ if you do not work together and you hurt others you are excommunicated and leave
 [[Memory Potion]] is traded with [[Blind Beholder]] 
 
 [[Zueka]] was researching [[Hemocraft]] for them before they disappeared
+
+Told [[Geros]] to avoid witches
