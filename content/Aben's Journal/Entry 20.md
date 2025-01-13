@@ -15,7 +15,7 @@ The symptoms of [[Mageburn]] ALMOST line up with my own. Especially some of the 
 
 It is notably different.
 
-Natural [[mageburn]] symptoms develop blue, purple, or polychromatic alterations. Not explicitly green.
+Natural [[Mageburn]] symptoms develop blue, purple, or polychromatic alterations. Not explicitly green.
 
 XL
 
