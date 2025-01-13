@@ -1,6 +1,6 @@
 A [[wizard]] who uses [[ice]] magic. Training [[Khione]] and [[Finn]] at the [[Cryomancer's Keep]] 
 
-Name is [[Ashblossom]] 
+Name is [[Cyrus]] [[Ashblossom]] 
 
 Wears blue robes with fur
 

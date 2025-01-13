@@ -11,14 +11,14 @@
 - [[paladins]] pray and find there is no god that lives in the northwest 
 - [[Daefaren]] looses another finger
 - I take the ring [[Drayax's ring]] back and put it in my [[Bag of Holding]]
-- We take the [[train]] to a greenhouse at the next train station in the south [[Carthian Treatment Center]]
+- We take the [[train]] to a greenhouse at the next train station in the south [[Carthion Treatment Center]]
 - [[Geros]] finds more [[moss]]
 - We enter a room dedicated to all [[Hemocraft]]
 - [[Daefaren]] drinks a vial of clear liquid that was in a blue glass
 - It gives advantage on one check and lasts one hour
 - We find a list of all spells that have been banned
 - [[Geros]] knew a [[Zueka]] who did blood magic, scientist of the [[Five Pillars]] who disappeared 5 years ago. 
-- I go to the medical bay called [[Carthian Treatment Center]]
+- I go to the medical bay called [[Carthion Treatment Center]]
 - I take 3 [[Greater healing Potion]]
 - Those deemed untreatable will be exiled 
 - I take that Spell scroll for [[spell command]] 

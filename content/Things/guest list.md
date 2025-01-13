@@ -74,8 +74,8 @@ Igraine Cassidy
 
 Bartenders:
 
-Dora Van HottuM
-Sandra CooMbs
+Dora Van Hottum
+Sandra Coombs
 
 [[Aurum]] Guard:
 Irén Blake  
@@ -108,7 +108,8 @@ Live Entertainment:
 Warren Czinege- Pianist 
 Eldar Kato-Bass Player
 Adano Lagounova-Violin Player
-Ramazi Tillens - Flautist _ris ó Malley -"Drummer"
+Ramazi Tillens - Flautist 
+Iris ó Malley -"Drummer"
 
 Record Keeper:
 

@@ -12,4 +12,4 @@ Found in
 - [[Turquoise Deep Mine]]
 - the chest of the [[Arch Cryomancer]] had the [[cracked Crystal Heart]] 
 - [[red crystal hearts]]  found in [[Blind Beholder Briar Outpost]]
-- [[Carthian Treatment Center]] / [[Old Victoris Extraction Site]]
+- [[Carthion Treatment Center]] / [[Old Victoris Extraction Site]]

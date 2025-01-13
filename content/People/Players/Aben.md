@@ -9,7 +9,7 @@ Knew the [[vial]] was empty by the weight
 
 Not surprised by different races
 
-Took all blood magic scrolls from [[Carthian Treatment Center]]
+Took all blood magic scrolls from [[Carthion Treatment Center]]
 
 Not healed by [[crystal heart]]
 

@@ -8,4 +8,4 @@ They aren't.
 
 It would be a shame to lose such intuition.
 
-[[Sylas]] Carthion ninth high Overseer of Victoris
+[[Sylas]] Carthion Ninth high Overseer of Victoris
