@@ -3,7 +3,7 @@
 It happened. [[Trevor]] walked up to my desk, and dropped off the old reports on [[gold]]
 
 - - - 
-[[Gold]] is immune to time. It does not decay or corrode. However it does channel electrical and Arcane ([[Arcane Energy]]) currents VERY well.
+[[gold]] is immune to time. It does not decay or corrode. However it does channel electrical and Arcane ([[Arcane Energy]]) currents VERY well.
 
 This why it was used to make the temporal [[automaton]]s.
 
