@@ -1,1 +1,1 @@
-Room though the medical bay in [[Carthian Treatment Center]] has a war room table with three humans in vests turned to stone
+Room though the medical bay in [[Carthion Treatment Center]] has a war room table with three humans in vests turned to stone

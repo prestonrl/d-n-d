@@ -17,6 +17,6 @@ Verified ID: [[0451]]     Class: Healer
 
 Notes: A disturbance was identified beneath the town of Shenandoah [[Shanon]] outside the southern valley. You have volunteered for the mission of commuting through the quarantined section of the [[Labyrinth]] and identifying the disturbance. If you identify the quarantine subject, initiate plan Σ([[plan sigma]]), and channel the subject to the nearest objective point at - 93/-20.
 
-If you are overcome by the [[mutagen]] blood curse #02 [[blood curse of the fallen puppet]]The fallen puppet , retreat immediately. If you dee, yourself untreatable, begin plan T.
+If you are overcome by the [[mutagen]] blood curse #02 [[blood curse of the fallen puppet]]The fallen puppet , retreat immediately. If you deem, yourself untreatable, begin [[Plan H]].
 
 Aben Bladeless: Society of the [[Blind Beholder]]

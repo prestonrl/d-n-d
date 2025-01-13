@@ -1,3 +1,3 @@
-Spell scroll found in [[Carthian Treatment Center]]
+Spell scroll found in [[Carthion Treatment Center]]
 
 Teleportation

@@ -5,3 +5,5 @@ Where [[Trevor]] expected [[Sylas]] to show up again, so we spent 5 days prepari
 
 Magical fissures will start 2 hours into the party
 [[lich heart]] will have 2 hour intervals
+
+[[Intended Schedule]] 

@@ -1,1 +1,1 @@
-Spell scroll taken from [[Carthian Treatment Center]] 
+Spell scroll taken from [[Carthion Treatment Center]] 

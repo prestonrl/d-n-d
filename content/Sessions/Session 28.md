@@ -9,7 +9,7 @@
  - His room is on the second floor
  - [[Elias]] sounds under the weather
  - [[Alisha]] hears whispering 
- - [[Aben]] asks [[Daefaren]] to sacrifice himself he got scrolls of blood magic to heal himself from the blind beholder place [[Carthian Treatment Center]] this will kill [[Daefaren]] and save [[Aben]]
+ - [[Aben]] asks [[Daefaren]] to sacrifice himself he got scrolls of blood magic to heal himself from the blind beholder place [[Carthion Treatment Center]] this will kill [[Daefaren]] and save [[Aben]]
  - [[Tizlin]] casts [[zone of truth ]]and most of us are affected
  - I climb and get some candle wax to mould into [[earplugs]]
  - [[Reginald]] lock picks the door

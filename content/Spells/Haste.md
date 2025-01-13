@@ -1,1 +1,1 @@
-Spell scrolls found by [[Jadaya]] in [[Carthian Treatment Center]]
+Spell scrolls found by [[Jadaya]] in [[Carthion Treatment Center]]

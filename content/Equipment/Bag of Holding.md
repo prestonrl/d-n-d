@@ -45,3 +45,7 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - 15 lbs of unrefined gold, 219 gold when refined 
 - For [[Jadaya]]  10 lbs of unrefined pounds, 146 gold when refined
 - For [[Alisha]], 10 lbs of unrefined gold, 146 gold when refined
+- Red cloth crates
+- copy written slabs of ruins in abyssal
+- copy [[Lightweight Division Workshop]] schematics
+	- Geros has a copy too

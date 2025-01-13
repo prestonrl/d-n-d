@@ -1,1 +1,1 @@
-spell scroll found in [[Carthian Treatment Center]]
+spell scroll found in [[Carthion Treatment Center]]
