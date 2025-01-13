@@ -1,4 +1,8 @@
-Mentioned in [[Aben's Journal]] [[Entry 9]]
+Mentioned in [[Aben's Journal]] [[Entry 9]] [[Entry 10]]
+
+is immune to time. It does not decay or corrode. However it does channel electrical and Arcane ([[Arcane Energy]]) currents VERY well. 
+
+Used to make the temporal [[automaton]]s
 
 - Archive 86432: The Crucible Phenomenon
 -  Archive 72597: Engraving Dictionary
