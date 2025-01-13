@@ -1,4 +1,4 @@
- - I had Covid
+ - I had ~~mutagen~~ (Covid)
 
 
 Previous Session: [[Session 28]]

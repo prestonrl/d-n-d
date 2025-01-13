@@ -1,1 +1,1 @@
-The nickname of the [[Slender Cultist]]
+The nickname of the [[Slender Cultist]] (who used to be [[Alex]]) 

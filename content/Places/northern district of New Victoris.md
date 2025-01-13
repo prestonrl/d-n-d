@@ -8,3 +8,7 @@ Dark shapes seen above the clouds
 Investigation about inside job
 
 Used to have hot springs
+
+Has a fountain in the middle, now dried
+
+Is District 22 of 26

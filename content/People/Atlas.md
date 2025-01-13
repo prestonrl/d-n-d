@@ -26,6 +26,21 @@ Tried to stop the [[calamity]] of [[Old Victoris]], but was convinced with [[Syl
 
 Has spent the time since the fall of [[Old Victoris]] amassing the old guard that used to patrol the city, the [[Ember Guard]], and creating the [[Circle of Embers]] so that the their plans of destroying everything could be brought about.
 
+Has the [[adamantine sword]] 
+
 Has power of the god [[New Flame]]. But [[Atlas]] is one fifth the power.
 
 Wears a ring with a small green emerald on the left hand (wedding ring from [[Sylas]])
+
+Has an ability called [[Blind Sight]] 
+
+Had immortality stripped from them related to the [[tarot card]]. Now that he has it back he has the path to become immortal again.
+
+In the past he became a god, with two consciousnesses. [[New Flame]] is the god consciousness.
+
+Wingspan is as big as a whole district of [[New Victoris]]
+
+Wings more of fire than flesh
+
+Can teleport someone away with magic, and when he does flames appear around his eyes.
+

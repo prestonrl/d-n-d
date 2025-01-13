@@ -1,0 +1,1 @@
+The Mages in the [[Forest of Ancient Gods]] that tap into the [[primal divide]] and have symptoms of [[arcane radiation]]

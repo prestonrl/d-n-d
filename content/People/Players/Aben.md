@@ -52,4 +52,6 @@ Left arm is taken by the [[Assimilator]]
 
 Has the potential to become a [[lich]]
 
+Weirdly knows what human tastes like
+
 Played by: Demetrius 

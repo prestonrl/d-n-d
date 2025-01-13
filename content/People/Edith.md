@@ -6,7 +6,7 @@ Has a pendant of a persons face with glowing yellow eyes
 
 Eats a carnivore diet
 
-Is for sure a [[vampire]]
+Is for sure a [[vampire]] and can turn into a bat
 
 When she casts spells there is a purple crystalline substance around her hands. Also [[Abyssal]] runes.
 
@@ -17,3 +17,4 @@ Met at the [[Hightower Estate]] dinner with [[Atlas]] ([[Archdruid]]) and [[Ches
 [[Aben]] may be into her.
 
 Was reading Romeo and Juliet
+

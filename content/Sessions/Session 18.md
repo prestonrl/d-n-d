@@ -27,7 +27,7 @@
 - I promise [[Jadaya]] to ask [[Trevor]] about the [[Five Pillars]] hiring her and then forgetting about it
 - [[Alisha]] asks about [[Trevor]] who she has heard of
 - the twins [[Elias]] and [[Tobias]] approach [[Alisha]] about her being back in town and ask her about lockdown
-- Twins ask her to find a [[ring for Alisha to find]]
+- Twins ask her to find a [[Elias Ring]]
 - [[Jadaya]] drinks the whiskey and the tequila and passes out
 
 Previous Session: [[Session 17]]

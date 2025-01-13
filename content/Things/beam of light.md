@@ -1,0 +1,1 @@
+The light over the [[black orb]] for the [[Citadel]] that had healing properties

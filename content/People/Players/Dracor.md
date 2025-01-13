@@ -1,3 +1,4 @@
+Dracor [[Procure]]
 A [[dragonborn]]
 Hired private guard to the [[Briar Estate]]. Associated with [[Geros]] who he was assigned to go check on [[Shanon]] with
 

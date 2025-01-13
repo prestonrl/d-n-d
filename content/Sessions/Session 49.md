@@ -1,7 +1,9 @@
+Current Date 2/20/79
+
 - I am in darkness
 	-  I call to [[Bimuna]] and feel a godly force nearby
 	- I see a [[tarot card]] 
-		- Face has an ancient dragon on it, older than cultist
+		- Face has an ancient dragon on it, older than the [[Cultists]]
 		- The back is a simple ink pen
 	- I touch the card, nothing happens
 		- I attune to the card 
@@ -22,7 +24,7 @@
 	- Center perfect stone replica of the dining room
 - The stone hologram [[dollhouse]] shows the past 
 	- Cannot hear audio 
-	- The magic seen in the past from [[Edith]] was Illusionary magic from the negative energy plane 
+	- The magic seen in the past from [[Edith]] was Illusionary magic from the [[negative energy plane ]]
 - We use dollhouse time dial and follow [[Atlas]] 
 	- [[Atlas]] had a large cloak they put on a coat rack
 	- [[Edith]] opened the door for [[Atlas]] and [[Chester]] came from the side
@@ -81,10 +83,10 @@
 		- With all the assists [[Aben]] uses the rifle
 			- shoves the barrel of the gun in the [[Archdruid]]'s sleeping mouth and fires and finishes ii
 - Something falls from [[Seraphina]]'s pockets
-	- It was [[Elias]]'s red ring ([[ring for Alisha to find]])
+	- It was [[Elias]]'s red ring ([[Elias Ring]])
 		- She had discussion with [[Trevor]] earlier 
 			- He left the ring behind
-		- [[Seraphina]] thought she  could do something with it to make things right
+		- [[Seraphina]] thought she could do something with it to make things right
 			- She has gone through a lot of really traumatic events recently
 				- Thinks it is unfair that [[Elias]] could forget everything that has happened
 				- Planned to give the ring to him to recover [[Elias]]'s memories

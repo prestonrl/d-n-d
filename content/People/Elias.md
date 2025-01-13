@@ -1,7 +1,7 @@
 Elias Briar
 A sibling of [[Alisha]] and twin of [[Tobias]]
 
-Wanted Alisha to find a [[ring for Alisha to find]]
+Wanted Alisha to find a [[Elias Ring]]
 
 Is the spy for [[Sylas]]
 

@@ -1,0 +1,112 @@
+Current Date 2/20/79
+
+- [[Reginald]] pockets [[Elias Ring]]
+	- There is a time limit to recover Elias's memories
+		- The more time that passes the less can be recovered
+		- After a month it is harder
+		- After two months the recovered memory is factured
+		- Three months is too late
+- [[Geros]] takes a random cultist skeleton that he had in his bag and puts it in the [[beam of light]] where the orb was
+	- They start to come back to life and breath
+		- [[Aben]] removes them and they turn back into a skeleton
+	- They do it again and the head gets glowing eyes
+		- It talks in a voice that is definitely not the original voice
+			- It says "hello"
+		- They don't react to poking
+		- It is the [[epithet]] of the [[Earthmother]] trapped here
+			- incomprehensible number of epithets (to [[Geros]])
+				- 447,888 	
+- It takes a lot of lives to power the [[citadel]]
+	- Will take [[Atlas]] and others to another plane
+- We see ash fall down
+	- I go outside and see a dome over the city and and the [[Channeling Tower]]'s and [[Citadel]] are almost done
+		- Fire is going up
+- We talk with [[Edith]]
+	- [[The Horizon Accord]]  killed a lot of [[Edith]]'s family
+		- It was a pact with the [[Hightower Estate]]
+			- The Westerna's consider it a stain on their legacy
+			- until either family is gone
+		- Seeing the current generation of [[Hightowers]] she decided there might be a more diplomatic way
+		- She wishes for the [[Hightowers]] lineage to come to an end
+			- She asks to for [[Reginald]] to renounce the name
+				- [[Edith]] shakes his hand
+	- She warns us that [[Atlas]] will not forgive another [[Archdruid]] death
+	- She turns into a bat and flies away
+- Within the dining room a circle appears and a rune burns its way up
+	- Me and [[Aben]] run to the shed and pick up our equipment  
+	- [[Alisha]] runs and scratches out the rune
+		- It causes a small delay
+	- Fire does ignite and start to spread the ruins 
+- [[Atlas]] manifests in a pillar of fire
+	- First words are, "where is the gnome"
+	- [[Reginald]] says,'' I don't know''
+	- [[Atlas]] sees me
+		- uses their turn to dash to me at the front door
+		- [[Jadaya]] throws the camouflage [[bush disguise]] over me 
+			- [[Atlas]] has an ability called blind site so this does nothing
+		- [[Alisha]] casts a no speak zone
+	- I offer a mushroom to [[Atlas]], my hand with shroom appears out of the bush
+		- He swipes it away with his sword
+		- Picks me up and takes me out of the silence zone
+	- Says I have something of his 
+		- [[Atlas]] had immortality stripped from them
+			- He wants the [[tarot card]] that I got in the [[black orb]]
+				- I attempt to put [[Drayax's ring]] on his finger 
+					- Retconned when I gave it away
+	- [[Atlas]] downs me
+		- [[Alisha]] heals me 
+	- [[Atlas]] asks where it is (the [[tarot card]])
+		- I say, "what are we talking about"
+			- He throws me in the air and skewers me with his sword
+		- [[Aben]] hits his left arm with the [[electric rail cannon]]
+		- Atlas takes the [[tarot card]] from my pocket and drops me to the floor
+	- [[Geros]] uses the briar [[gauntlet]] at point blank range
+		- The battery comes out cracked
+	- [[Atlas]] has what he wanted from us and heads to [[Chester]]
+		- Grabs [[Chester]] by the neck
+			- Says Chester got ahead of himself
+				- Says he had signed loyalty
+			- Sickening pop and crack from [[Atlas]]'s hand
+				- The flesh warms and skin tears and scales begin to form
+- [[Atlas]] grows wings and takes off with [[Chester]] in his hand 
+	- Fire, flickering flames, coat the heavens
+	- The wingspan silhouette is as big as the whole district 
+	- Says,  "Much to my dismay I still have use for you Lord Hightower"
+		- flames appear around his eyes and he teleports him away
+- "In my home city I knew someone who killed his whole family
+	- I will only do what needs to be done"
+- The [[Hightowers]] trade in lives
+	- Supply city infrastructure 
+- Lord Hightower gave [[Atlas]] what he needed
+	- City of [[Bruelethor]]
+		- infrastructure 
+	- [[Shanon]]
+		- assurance of lineage 
+	- [[Rookwatch]] 
+		- granted his sons life
+- [[Atlas]] asks [[Reginald]] to uphold the [[Hightowers]] legacy
+	- Not the name the legacy
+	- asks to lend his voice to him as academic of the ancient 
+		- if he does he will spare everything until his allotted time is up
+- [[Atlas]] wings are made of more fire than flesh
+- Rain begins to fall putting out the smoldering building
+	- Far in the distance I hear [[Seraphina]] crying
+		- [[Reginald]] is nowhere to be seen
+			- I ask where he is
+			- She says there was a lot of fire and she doesn't know 
+- [[Aben]] picks up the things that [[Reginald]] left behind
+	- the scroll of pedigree
+	- the ring designating [[Reginald]] a Hightower 
+- [[Aben]] removes the tinkering from [[Seraphina]]'s [[engagement ring]] that has the voice record thing
+- [[Seraphina]] pushes everyone away with magic wall 
+	- She then lashes out psychically and hits [[Alisha]] and [[Jadaya]]
+	- They attempt to stay and comfort her
+- [[Aben]] is upset and thinks that [[Reginald]] abandoned us when he went to leave with [[Seraphina]] for her and their babies protection
+	- He starts walking to the gates to the north
+		- [[Geros]] follows
+			- I am still on his shoulder and with nothing else to do go with them
+		- We approach the gates to the [[Ramparts]] and the [[Bedrock Dungeon]]
+- The [[Slender Cultist]] [[Floppy]] waits for us
+
+Previous Session: [[Session 49]]
+Next Session: [[Session 51]]

@@ -1,0 +1,1 @@
+The old leader of the [[Bedrock Dungeon]] before the [[Circle of Embers]] and [[Atlas]] took over [[New Victoris]]

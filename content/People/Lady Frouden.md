@@ -15,3 +15,6 @@ Travels by [[teleportation circle]]
 Because of last name, must be related to [[Flicker]] in some way
 
 Was unaware of [[Sylas]] returning until her interview with [[Jadaya]] and [[Perrin]]
+
+
+Has 16 Great Wyrms in total, a number of them have passed away

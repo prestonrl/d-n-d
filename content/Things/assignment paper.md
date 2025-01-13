@@ -13,7 +13,7 @@ Obtain: BH-Helm, AT#1, AT#2
 Legal immunity to the following:
 [[Carthion Containment Protocol]]
 
-Verified ID: 0451     Class: Healer
+Verified ID: [[0451]]     Class: Healer
 
 Notes: A disturbance was identified beneath the town of Shenandoah [[Shanon]] outside the southern valley. You have volunteered for the mission of commuting through the quarantined section of the [[Labyrinth]] and identifying the disturbance. If you identify the quarantine subject, initiate plan Σ([[plan sigma]]), and channel the subject to the nearest objective point at - 93/-20.
 

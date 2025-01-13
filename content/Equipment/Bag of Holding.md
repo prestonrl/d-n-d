@@ -41,3 +41,7 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - [[sending stone]] 
 - 1 Aben vial of [[paralyzing vial]]
 - 1 Cast Iron small key from [[Atlas]] 
+- Mask of cultist to make it look like cultist
+- 15 lbs of unrefined gold, 219 gold when refined 
+- For [[Jadaya]]  10 lbs of unrefined pounds, 146 gold when refined
+- For [[Alisha]], 10 lbs of unrefined gold, 146 gold when refined

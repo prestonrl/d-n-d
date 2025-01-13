@@ -1,3 +1,5 @@
+Current Date 2/20/79
+
 - In the [[Hightower Estate]] Manor
 	- Behind closed door
 	- [[Chester]] prepares to make intensions known to his only son
@@ -112,7 +114,7 @@
 			- Come to an indoor chamber at the top of the tower
 				- in the center of the room there is a pedestal 
 					- [[black orb]] on it
-				- Light comes through small holes in the ceiling 
+				- A [[beam of light]] comes through small holes in the ceiling 
 				- [[Geros]] picks it up and black tendrils go up his arm
 					- The skin beneath his eyes darkens and becomes dryer
 					- [[Geros]] puts it down, tendrils  recede but eyes are not changed back
