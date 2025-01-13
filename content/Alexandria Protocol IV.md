@@ -1,0 +1,1 @@
+Mentioned in [[Aben's Journal]] [[Entry 9]] in regards to the properties of [[gold]] 
