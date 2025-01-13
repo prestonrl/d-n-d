@@ -1,3 +1,4 @@
+Drayax [[Procure]]
 A [[dragonborn]] who is metallic?
 Brother to [[Dracor]] who dropped out of the [[Astral Plane]] into the [[ruins]] to join the group fighting the [[Cultists]]
 home is [[Bruelethor]]

@@ -1,0 +1,82 @@
+Current Date 2/20/79
+
+- [[Seraphina]] has left to her home district 
+- We see [[Floppy]] as we leave the [[Hightower Estate]]
+	- We approach the wall of the city through a doorway with [[Floppy]] over it and there are stairs leading up
+	- I try to convince [[Geros]] to let [[Alisha]] and [[Jadaya]] catch up
+		- He chases [[Floppy]] faster
+			- [[Aben]] casts a hand to trip them as we catch up
+				- We all crash into [[Floppy]] 
+					- [[Geros]] does pushups to try and make it look like it was on purpose
+- [[Geros]] takes the ivory mask of the [[Circle of Embers]] off [[Floppy]]'s face
+	- very burnt and scarred face underneath 
+		- [[firbolg]]
+	- [[Geros]] hands a better mask to them
+- [[Floppy]] say they don't know [[Madeline]]
+	-  they don't mean us harm
+		- but wants us to die
+- Reminds us we got a favor from an [[Archdruid]] [[Wylhen]] the one from the outside of the walls of [[New Victoris]]
+- [[Alisha]] cast silence
+	- [[Aben]] writes with his [[magic pen]] to [[Alisha]]
+		- Says that we should kill [[Floppy]] 
+- We argue a lot
+	- [[Geros]] repeatedly gets frustrated that [[Floppy]] will not tell us their name
+- It is about 3am. We give up and take a long rest in the guard tower with [[Floppy]]
+- [[Jadaya]] sees in dreams the snowy landscape of the middle part of the [[Forest of Ancient Gods]]
+	- Sound of a great wolf paws in the snow
+	- She heads to a cottage
+		- the wolf doesn't notice her
+	- Pitch black inside the cottage
+		- wolf goes through the door
+			- Lands in the guard tower office where we are
+	- [[Slender Cultist]] observes this
+	- Vibes of the same wolf that resides in her ax 
+	- She asks what is it doing here
+		- wolf bows head and disappears 
+	- She had seen it with the [[black orb]] earlier
+- While I sleep I learn the spell [[Water Breathing]]
+
+ Current Date 2/21/79
+
+- There are no more prisoner in the [[Bedrock Dungeon]]
+- The orbs connect to the [[negative energy plane]], power the [[Citadel]]
+- We ask [[Floppy]] why they joined the cult
+	- Answers that they see something much larger than themselves
+	- A god called the [[New Flame]] gave a second chance at life 
+- [[Floppy]] the [[Slender Cultist]] was [[Alex]] before they died
+	- [[Alex]] was at [[Victorian Chronicle]] for story when the [[Cultbusters]] came through before meeting with [[Atlas]]
+	- Then the [[Citadel]] began construction 
+		- She crossed a bridge near the [[apex of the world]] and fell as it collapsed
+	- [[Shrouden]] came and gave her option of quick death
+		- she accepted 
+	- There is nothing after death 
+		- except a god the [[New Flame]] who offered the chance to come back
+			- They come back but can never be revived again, 
+				- even with revivification
+		- Not everyone takes the opportunity 
+			- Most give up
+		- She came back because she had hope
+		- Still has free will 
+	- Has two maps to the [[Citadel]]
+- [[Archdruid]]s took the old names of royalty from [[Bruelethor]]
+	- [[Flicker]] Frouden
+	- [[Procure]]
+	- [[Wylhen]] Shrouded
+- The [[dragonborn]] slaughtered ancient [[great wyrm]] from [[Bruelethor]]
+	- They took on the names of the old royalty and took over the city
+		- [[Atlas]] and the [[Circle of Embers]] took back the city
+- [[Floppy]] gets a [[teleportation circle]] to take us to the center stone room of the [[Bedrock Dungeon]]
+	- Dead center of the dungeon connected to
+		- prison complex
+		- surface mining complex
+		- district senate  complex
+	- Engraving of silver great worm around the wall, 
+		- the name [[Procure]] is engraved with it
+			- The last name of [[Drayax]] and [[Dracor]]
+				- They were the descendants of the draconians who took over [[Bruelethor]] 
+					- Took the name of the royal great worm they pushed out
+ - [[Aben]] finds a small triangular sigil of one of the [[helms]] under it
+	- Opens a secret door we step through
+
+Previous Session: [[Session 50]]
+Next Session: [[Session 52]]

@@ -1,0 +1,167 @@
+Current Date 2/21/79
+
+- [[Aben]] steps through the doorway from the Central Complex of the [[Bedrock Dungeon]] prison
+	- We don't hear footsteps when walking through the door
+		- The room is under the affects of a Silence spell 
+	- Above the doorway is an LCD display which [[Aben]] turns on
+		- We see [[Eve]]
+			- She says hello in text
+			- She can hear
+			- She says securing the shortcut to District 22 - [[northern district of New Victoris]]
+				-  26 total districts
+			- Displays a Map
+				- All life forms marked by circles
+				- We see a circle down the hall
+					- it is the red warden
+						- an [[Archdruid]]
+							- 546 HP
+							- blind
+								- Their mask doesn't have eyes
+							- Gold etched robe
+				- 22 other people in the facility 
+				- There is a note on the map in the senate complex about [[Wilbur]]
+					- [[Wilbur]] is a senator for the [[Maw]]
+				- The senate meets here in the [[Ramparts]] and all decisions are made here
+- I go to the Senate Complex with [[Alisha]] and we look into the records about the Hightower infrastructure
+	- Some was here before the city was made
+		- Channeling tower
+		- estate builder 
+- [[Geros]] goes to the Gold Link Storage, 
+	- gold link chains to keep specific prisoners in line 
+	- One cultist, [[Bob]] is in there trying to remove the gold cuffs from their wrist 
+		- Says the rest were able to get the shackles off on their own
+		- Just joined the [[Cultists]] of the [[Circle of Embers]]
+		- The shackles were on before they joined 
+			- Just the cuffs, no chain is attached
+		- Was with 5 others, they eliminated the lot of us,
+			- 3 came back
+			- Their first test to was to use the embers magic were to melt the gold chain cuff
+				- [[Bob]] can only make sparks
+	- [[Geros]] is trying to get the cuffs off them
+	- [[Aben]] pulls out his gun and shoots [[Bob]] in the head execution style
+		- [[Bob]] is dead
+			- [[Geros]] takes out his great sword and chops [[Bob]]'s hands off and get the gold cuffs
+				- The cuffs abjuration spell, cannot pass through the barrier around the dungeon 
+- [[Alisha]] and I rush into the room after hearing the [[gun]]
+	- I am extremely angry at [[Aben]] for the murder
+		- I am starting to wonder if the [[Cultists]] are more moral than the [[Cultbusters]]
+- [[Aben]] and [[Geros]] decide they are hungry and go to the kitchen
+	- Inside there are two other cultists 
+		- One is [[Dave]] 
+		- Inventory guy in the back is [[Oraz]] Soot
+			- [[Aben]] and [[Geros]] put them in a crate
+	- [[Jadaya]] cooks chicken in the kitchen
+		- [[Aben]] is a cannibal, knows what human tastes like 
+- [[Geros]] goes to the sewer complex with [[Aben]]
+	- They throw a match into the methane
+		- Large explosion 
+- [[Alisha]], [[Jadaya]], and I go to the surface mining complex
+	- We see a number of tunnels with brown water streams and panning equipment for gold 
+	- More [[Cultists]]
+		- Rick, Saba, Gundo
+			- [[Procure]] the red warden killed them to join the cult
+		- [[Geros]] puts them into more crates
+			- [[Geros]] kills Rick
+		- Steve, Tom, and Stacy
+	- I put 15 lbs of unrefined gold in my [[Bag of Holding]], 
+		- Would be219 gold when refined 
+		- For [[Jadaya]] I hold 10 lbs of unrefined pounds, 
+			- 146 gold when refined
+		- For [[Alisha]], 10 lbs of unrefined gold
+			- 146 gold when refined
+	- [[Geros]] gets 800 lbs of gold 
+		- 11700 when refined 
+- I go back to the Senate Complex to investigate what they were discussing before [[Atlas]] took over
+	- Find documents of a discussion regarding the way the districts are divided
+		- The public guard was divided before the takeover 
+			- This made the takeover easier
+			- Senator from the north district was the leader of the reconfiguring of the guard
+				- [[Minru]] Gyakevri
+- We look into the prison records to see why all these new [[Cultists]] had been in-prisoned for 8 years
+	- [[Eric]] Eldora was killed, 
+		- Was the former senator for the [[Maw]]
+- [[Jadaya]] looks into documents on the [[Forest of Ancient Gods]]
+	- Documents talk about wild mages and people who contact them
+		- They have symptoms similar to [[arcane radiation]]
+- One document from 200 years about makes reference to [[Sebastian Stone]]
+- Can't find any references to [[Dohr]]
+	- but see the name Nicholas a whole lot
+		- ([[Percival]])
+- We enter the silence [[Blind Beholder]] room
+	- [[Aben]] hacks into the interface
+		- There is a code input panel for the admin code
+			- [[Aben]] types in [[0451]] from his [[assignment paper]] 
+				- Door to the [[northern district of New Victoris]] opens
+- We see the sunlight and walk out into the [[northern district of New Victoris]]
+	- The district is almost completely leveled
+	- a dried fountain in the center
+- [[Aben]] feels nostalgia
+	- He starts to walk and comes to rubble that was a housing block
+		- Up to the 4th floor sees his old living space
+			- New York style apartment
+			- Double bed
+			- Lots of burned paintings
+			- A birdcage. 
+		- [[Aben]] sits there for a bit
+- A large creature swoops down
+	- Light footsteps of a person
+		- It is [[Lady Frouden]]
+			- Accompanied by a shorter woman
+				- [[Fiora]] Cavendish
+					- Human
+					- HP 25
+					- AC 11
+					- Carry themselves with more confidence than someone with those stats
+					- black hair braided down her back
+					- Brief flicker on left arm
+						- Probably a [[changeling]]
+		- [[Aben]] approaches
+			- She is not here for [[Aben]] and mentions she is surprised he survived to make it back here
+		- Here for [[Jadaya]]
+			- Feels in debt to her because she promised her something she could not deliver
+				- Feels in even more debt because she is trying to do her own business for her
+					- Taking down her sibling [[Atlas]]
+			- Wants to make a deal
+				- Offers assistance
+					- Pulls out simple black stone slate
+					- It is a [[sending stone]]
+						- It sends to [[Lady Frouden]] personally
+				- "Assistant and I will observe your group"
+					- Received outlandish  reports from the [[changeling]] observers 
+			- [[Lady Frouden]] takes a look at [[Geros]] eyes
+				- She asks if he knows who his parents are
+					- He responds that [[Bimuna]] said she was related to him 
+			- She tells us Mages trying to tap into the [[primal divide]] caused the [[arcane radiation]] in the [[Forest of Ancient Gods]]
+- [[Lady Frouden]] is the reason [[Atlas]] built the [[Citadel]] again
+	- Would have destroyed [[New Victoris]] otherwise
+	- Trying to get to another plane with the [[Citadel]] is Plan B for the [[Cultists]]
+		- Just granting a the dying wish of [[Lady Frouden]] in their minds
+	 - Plan A was for the [[Silence]]
+- We inform [[Lady Frouden]] that [[Atlas]] has the [[tarot card]]
+	- She says he has the path to become immortal again
+	- In the past [[Atlas]] became a god
+		- He had two consciousnesses 
+			- One with all their godly stuff
+				- [[New Flame]]
+- [[Lady Frouden]] inspects the [[maul of the pantheon]] because [[Geros]] informs her the [[New Flame]] is in it
+	- She wants to take it from him
+	- He convinces her to leave it with him
+- [[Lady Frouden]] and [[Atlas]] are siblings
+	- There were 16 [[great wyrm]]'s in total
+		- A number of them have passed away
+		- Some went into hiding after the attack on [[Bruelethor]]
+			- During the day of the [[calamity]] a man came and slaughtered many of them
+				- (most likely [[Dohr]])
+				- Was wielding a blade
+					- [[adamantine sword]]
+			- Many fled
+			- [[dragonborn]] took over the city of [[Bruelethor]]
+				- Took on the names of the royal [[great wyrm]]s
+			- The [[Cultists]] of the [[Circle of Embers]] returned with [[Atlas]] and took the city of [[Bruelethor]] back
+				- The [[Archdruid]]'s of the [[Circle of Embers]] took on the names on the ancient royal [[great wyrm]]s
+					- Like [[Flicker]] Frouden taking on the name of [[Lady Frouden]]
+- [[Lady Frouden]] asks for one more thing
+	- "I want you to lead me into the [[Labyrinth]]"
+
+Previous Session: [[Session 51]]
+Next Session: [[Session 53]]

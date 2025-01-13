@@ -43,7 +43,8 @@
 - [[Geros]] dumps out his icy armor for a magical item voucher
 - [[Bimuna heart]] is given by [[Geros]] to have [[Wilbur]] infuse into his maul 
 - [[Reginald]] gets a [[Tome of Communication]] with an [[update lens]] with the help of [[Geros]] giving magic items
-- I give [[Wilbur]] [[Drayax's ring]] for a very rare item voucher and decide to do some research (look into Bow of Four or Oathbow)
+- ~~I give [[Wilbur]] [[Drayax's ring]] for a very rare item voucher and decide to do some research (look into Bow of Four or Oathbow)~~ 
+	- This was retconned in [[Session 50]]
 - [[Geros]] gives [[Wilbur]] the number for his [[Tome of Communication]]
 - We go back and take a long rest
 

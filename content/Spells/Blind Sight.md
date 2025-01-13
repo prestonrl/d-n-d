@@ -1,0 +1,1 @@
+[[Atlas]] has this ability to see through magical disguises.

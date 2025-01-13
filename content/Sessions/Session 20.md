@@ -38,7 +38,7 @@
 - All the artifacts are about the [[Ember Guard]]
 - The [[Circle of Embers]] is a sect of what was formerly the [[Ember Guard]]
 - Need to deal with the chest with the ruby lock use the ruby key in my bag of holding and see silver engraved [[time stop pocket-watch]]  with intense magic coming off of it, very powerful 
-- [[Alisha]] finds ruby ring maybe the [[ring for Alisha to find]] 
+- [[Alisha]] finds ruby ring maybe the [[Elias Ring]] 
 - [[Aben]] reads [[Abyssal]] and it says time stop on the pocket-watch
 
 Previous Session: [[Session 19]]

@@ -1,7 +1,7 @@
 Tobias Briar
 Brother of [[Alisha]] and twin of [[Elias]]
 
-Wanted Alisha to find a [[ring for Alisha to find]]
+Wanted Alisha to find a [[Elias Ring]]
 
 [[Alisha]] wanted him to face judgement for something
 

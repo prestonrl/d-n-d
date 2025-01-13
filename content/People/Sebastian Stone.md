@@ -9,3 +9,5 @@ Elf
 Black hair
 Weight 180 pounds
 Not married
+
+Document in [[Bedrock Dungeon]] Senate complex from 200 years ago made reference to them.

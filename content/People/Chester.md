@@ -3,3 +3,5 @@ Sir Chester Hightower
 Mad about [[Reginald]]'s relationship with [[Seraphina]]
 Came to the [[Aurum Briar Party]]
 Kept Reginald from joining the party and helping with [[Sylas]] 
+
+Is taken by [[Atlas]] from the [[Hightower Estate]]

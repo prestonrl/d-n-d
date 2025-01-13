@@ -14,7 +14,7 @@
 - [[Geros]] copies the [[schematics]] for the rebreather, gauntlets, sword, crossbow, ruby battery cylinders
 - [[Aben]] finds [[magic pen]] that only the person focused on can read
 - [[Daefaren]] found a trapped room with 7 [[red crystal hearts]] 
-- [[Elias]] and [[Tobias]] Briar sons of [[Sylvia]] and they sent [[Alisha]] to find a ruby ring [[ring for Alisha to find]] but are also the ones who called us out for breaking quarantine  
+- [[Elias]] and [[Tobias]] Briar sons of [[Sylvia]] and they sent [[Alisha]] to find a ruby ring [[Elias Ring]] but are also the ones who called us out for breaking quarantine  
 - [[Aben]] takes [[red crystal hearts]] 
 - room 009 is security room
 - room 008 cartography room
