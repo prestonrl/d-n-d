@@ -18,7 +18,7 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - [[medical gloves]]
 - gun components
 - mahogany ammunition crate
-- 5 turquoise pieces from the deep mine
+- 4 turquoise pieces from the deep mine
 - copper key from deep mine
 - prototype rebreather
 - map of [[Bruelethor]]
@@ -39,13 +39,12 @@ Bag was picked up by [[Perrin]] in [[Dungeon outside Shannon]]
 - Minor Healing Muffins
 - [[water books]]
 - [[sending stone]] 
-- 1 Aben vial of [[paralyzing vial]]
+- ~~1 Aben vial of [[paralyzing vial]]~~ (used on [[Seraphina]])
 - 1 Cast Iron small key from [[Atlas]] 
 - Mask of cultist to make it look like cultist
 - 15 lbs of unrefined gold, 219 gold when refined 
 - For [[Jadaya]]  10 lbs of unrefined pounds, 146 gold when refined
 - For [[Alisha]], 10 lbs of unrefined gold, 146 gold when refined
-- Red cloth crates
 - copy written slabs of ruins in abyssal
 - copy [[Lightweight Division Workshop]] schematics
 	- Geros has a copy too

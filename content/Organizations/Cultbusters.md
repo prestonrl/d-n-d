@@ -9,6 +9,7 @@ Current Party:
 - [[Aben]]
 - [[Jadaya]]
 - [[Reginald]]
+- [[Seraphina]]
 
 Past Members:
 - [[Dracor]]

@@ -11,3 +11,5 @@ Over the course of 80 years they have progressed many miles. This [[Sylvan Star 
 Information about them is not publicly available, and is actively being suppressed. 
 
 The exact rate of growth is 1.25 miles per year. It is constant over time. 
+
+The [[calamity]] began the divides encroaching on our plane.
