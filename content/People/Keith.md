@@ -1,4 +1,4 @@
-Keith Cabinech.
+Keith Cavendish
 
 A porter with the ability to teleport.
 
@@ -13,3 +13,6 @@ Related to the [[blue sash]].
 
 Has white hair.
 Small dwarf lady
+She/her
+Lesbian
+29 in human years

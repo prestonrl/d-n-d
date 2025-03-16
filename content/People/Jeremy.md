@@ -1,0 +1,1 @@
+ A construction worker hired by the [[hirelings]] for the remodel of  [[The Golden Scales]]

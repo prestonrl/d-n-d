@@ -1,0 +1,1 @@
+A magic item used by [[Geros]] in the [[Colosseum]] fight

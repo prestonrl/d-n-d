@@ -1,0 +1,1 @@
+What [[Sylas]] is referred to as after breaking out of the [[North Facility]] and causing the ash hands to grab at people in the [[northern district of New Victoris]]

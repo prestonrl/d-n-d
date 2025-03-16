@@ -1,0 +1,1 @@
+The broom [[Geros]] acquired in the [[northern district of New Victoris]] to deal with the [[ash hands]] 

@@ -7,6 +7,7 @@
  - [[Aben]] uses medical vials to slow the rate of decay 
  - [[Geros]] puts a sack over his head and  [[Aunt Roberta]] carries [[Flicker]] to the [[Cultbusters HQ]]
 	 - Around this point [[Jadaya]] and [[Perrin]] are replaced by [[changeling]]s that have their complete memories
+		 - [[Cassiopeia]] was impersonating [[Jadaya]]
  - [[Geros]] loots [[Flicker]] who has a leather bound spell book with classical druid literature and the [[electric rail cannon]] 
  - The guards of [[New Victoris]] are the guards from [[Briar Estate]]
  - [[Jeff]] the guard talks with [[Alisha]]

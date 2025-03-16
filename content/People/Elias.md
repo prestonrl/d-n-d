@@ -21,3 +21,11 @@ After the events of the [[Aurum Briar Party]] his memory was wiped.
 Comes to [[New Victoris]] to find someone in [[Britain]].
 
 Doesn't remember what happened to [[Tobias]] and thinks [[Alisha]] wasn't there.
+
+He/him
+straight?
+23 years old
+
+- went to [[Harker University]]
+- not experienced in dating
+- Interested in books 

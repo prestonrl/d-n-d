@@ -7,4 +7,6 @@ The museum next to the [[Carthion Treatment Center]] had artifacts from a lost c
 
 Is even older than [[Atlas]]
 
-Things sink into the [[shadowfell]]. 
+Things sink into the [[shadowfell]].
+
+Also known as the [[umbral divide]] 

@@ -1,4 +1,5 @@
 A shorter [[halfling]]  
+50 years old
 Has a pendant of [[Earthmother]]
 Short Black hair
 Tan skin

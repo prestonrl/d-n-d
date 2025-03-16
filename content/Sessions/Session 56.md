@@ -1,0 +1,137 @@
+Current Date 2/21/79
+
+- [[Reginald]] 
+	- The fire fades
+	- In destroyed royal hall of the [[New Victoris Palace]] in the central area
+	- Sees a dark figure down the entrance hall with their back to them
+		- [[Atlas]]
+	- 4 [[archdruid]]'s are near
+	- [[Atlas]] apologizes for his entrance
+		- but had to make the stakes known
+		- Had to find out how loss will affect him
+		- Values [[Reginald]]'s company
+			- Values archeology 
+		- States he wouldn't wish this on [[Reginald]] if he didn't have to
+			- Reminds him of what [[Seraphina]] must be feeling now
+	- [[Atlas]] raises a hand and a spell is cast
+		- [[Reginald]] sees a view of an ancient city
+			- [[Old Victoris]]
+				- [[Citadel]]
+					- disk stretches for miles
+					- earthy glow
+					- vail of stars
+				- The [[Citadel]] in action
+					- The whole structure has stars 
+				- Looking at the [[Astral Sea]]
+					- between the realms 
+		- [[Atlas]] casts stepping stones from the abyss
+			- and invites [[Reginald]] to walk with him
+				- They go into a garden with red leaves growing
+					- [[tea]]
+				- They see a chessboard between the [[party]] and [[Circle of Embers]]
+					- The rook of [[Geros]] is slightly conscious
+						- Like he has been here before
+				- [[Reginald]] tries to move the pawn to e5
+					- He feels pain
+					- body shifting and corroding between realities
+					- Fingers glitching out
+				- [[Atlas]] takes [[Reginald]]'s king
+					- Fire consumes 
+						- Sees [[Atlas]] face
+							- "Loss comes to us all
+							- Tragic to loose you
+							- You are an amazing player"
+	- [[Reginald]] is now looking at a god
+		- [[New Flame]]
+			- The god is offering a second chance
+				- [[Reginald]] is dead dead
+			- Asked "Do you feel hope"
+				- Answers "Yes"
+			- Who do you feel hope for
+				- "Wife and Child"
+			- That is where I will take you
+			  
+- Back to the main [[party]]
+	- Gas is coming from the cracks in [[Sylas]] tank
+		- I pull out the [[rebreather]] to avoid it
+			- [[Alisha]] gets poisoned
+		- The skeleton of [[Sylas]] turns to ash
+			- The last wisps come out the tank
+	- A spark forms in the air
+		- Embers of a soul coalesces 
+			- It is is [[Nemo]] ([[Reginald]])
+				- In a black suit
+							- Bright red shirt
+						- Bright red tie
+						- Wears a black cloak
+						- Wears a ivory mask with slits for eyes
+						- Looks evil
+	- [[Geros]] attacks the new comer and knocks them down
+		- [[Jadaya]] pulls the mask off
+			- It is [[Reginald]] with scars that look like James Franco from Spiderman 3
+	- [[Nemo]] casts cure wounds on [[Seraphina]] 
+		- but puts his mask back on
+	- When we call him [[Reginald]], he recalls that is what we used to call him
+		- Introduces himself as [[Nemo]]
+	- [[Sylas]] is gone
+- There is a pneumatic tube canister for the retrieval id on [[Aben]]'s desk
+	- [[Geros]] goes to [[Aben]]'s desk
+	- [[Aben]] gives his ID for the archive
+		- [[Eve]] shows a map with pickup spots
+			- Down a hall past a [[Planar Validation Gate]]
+- I have a breakdown over [[Sylas]] and disassociate staring into the tank
+- [[Aben]] and [[Geros]] and [[Fiora]] go the [[Planar Validation Gate]]
+	- Teleported into a small [[demi-plane]]
+		- A voice speaks
+			- Interloper identified
+				- Mass banishment
+				- 45 seconds left
+					- Countdowns
+						- [[Aben]] gives his verified ID
+					- Hear:
+						- "Home plane identified"
+						- Returning subjects
+							- [[Fiora]] is no longer with us
+							- [[Akron]] is where [[Fiora]] goes
+	- The pass the gate and are now in a pickup spot
+		- long counter
+		- a nook has a briefcase and two maps
+- We hear a crack from [[Seraphina]]'s direction and and her eyes blacken as [[Mutagen 1]] kicks in
+	- [[Sylas]] is taking over her body to come back 
+- [[Geros]] and [[Nemo]] talk
+	- [[Nemo]] tries to tell him [[Reginald]] means nothing now
+- The room begins to fill with the liquid from [[Sylas]] tank
+	- I use [[grappling hook]] 
+	- We dash out in the hall
+	- I hop on [[Geros]] back
+	- [[Geros]] gives me the [[electric rail cannon]] 
+		- I shoot it at the ceiling of the hall and the ceiling collapses into the fluid 
+	- [[Nemo]] melts the metal in the rubble to seal it off
+	- 5 spiral staircases
+		- We go up one to find a [[Blackbridge Antiques]]
+			- I tell [[Gaylend Billows]] that [[Sylas]] is gone
+- [[Geros]] walks out and [[ash hands]] grabs at his ankle
+	- Now their is a [[necromancer]] on the loose 
+	- [[Pristine the holy]] broom is now [[Geros]] 
+	- See silhouetted figure in the distance
+		- in black robes 
+		- middle aged woman
+		- black hair
+		- ducks into an ally
+	- [[Geros]] chases them
+		- One of their arms has an intricate floral tattoo 
+		- Gold roses on her arm are a birthmark like formation of an engraved sorcerer 
+	- [[Mina]] is their name 
+		- business with the dead
+			- will take a while to move them all
+			- She tries to teach [[Geros]] that murder is bad
+		- From the [[Hall of Prophesy]] in [[Diviner's Alley]]
+			- The [[Diviner’s of Diviner’s Alley ]]where [[Geros]] is from
+				- Local sector of the [[Five Pillars]]
+	- [[Geros]] presence is requested
+		- The [[Resting Grounds]] is its own district 
+	- [[Jadaya]] sneezes out the ash she snorted 
+- We head to the [[Resting Grounds]] 
+
+Previous Session: [[Session 55]]
+Next Session: [[Session 57]] 

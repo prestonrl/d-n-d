@@ -1,6 +1,9 @@
 Owner of [[Wilbur's Ward]] and [[Wilburs Vacation Home]] 
 
-A cave [[goblin]] with milky white eyes, sharp teeth, and a blue hat
+A small white cave [[goblin]] with 
+ - milky white eyes
+ - sharp teeth
+ - a blue hat
 
 Skilled at making magic items
 
@@ -11,3 +14,5 @@ Will not work with [[Geros]] ever again after the [[maul of the pantheon]] cause
 Refuses to talk with [[Atlas]]
 
 Senator for the [[Maw]]. Meets in the senate complex of [[Bedrock Dungeon]] in the [[Ramparts]]
+
+Died falling 1200 ft from the top of the [[Weirdatorium]] when lunging at [[Norman]] and accidentally lunging through the one window. - 447 damage

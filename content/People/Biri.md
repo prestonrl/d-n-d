@@ -4,8 +4,9 @@ Hired to work at the [[Matchmaking]] business of [[Jadaya]]
 
 Found us on her search for [[Jadaya]]
 
-Wears a pajama onesie with a dragon
+Wears a pajama onesie with of a dragon
 
 Does not cook
 Lazy in most aspects
 Easy to anger
+
