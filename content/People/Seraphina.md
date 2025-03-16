@@ -9,3 +9,5 @@ Wields a machete
 Has a sister, [[Beatrice]]. Grew up at the [[Cottontree Manor]]
 
 Doesn't know the difference between archeology and grave robbing
+
+Cracked the stasis chamber of [[Sylas]] in the [[North Facility]] and let him out again.

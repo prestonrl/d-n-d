@@ -1,0 +1,1 @@
+The mascot to encourage the protection of an area of the [[Forest of Ancient Gods]]

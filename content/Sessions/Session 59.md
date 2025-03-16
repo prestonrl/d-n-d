@@ -1,0 +1,147 @@
+Session Date: March 10, 2025
+Current Date: 2/22/79
+
+- [[Aben]] wakes up in a stone brown booth very high up
+	- Enclosed on three sides
+		- Has seats and a door
+	- He was slumped over
+		- He hoists himself up and sees a massive arena
+		- Sees the crowd seating circling around
+	- In the arena sees multiple complex zones for games that are going on
+	- Still has his weapons on him
+	- One section of the stands is full of [[Cultists]]
+	- A section of the battle ground below has a massive dragon in it 
+		- with a mass of brambles and vines surrounding it
+	- There is a slender man in the booth with him
+		- [[Aben]] pulls a gun on him
+			- He doesn't flinch
+		- It is the [[Lord of Ravens]]
+			- He welcome him to the [[Colosseum]] 
+				- He says the [[party]] volunteered for this 
+					- Explains the rules
+						- Team vs team 
+							- last team standing wins
+					- If [[Aben]] joins each of the other teams get to add another team member to the fight
+		- [[Aben]] takes a drink from the box
+- Teams
+	- Cultist team with Dragon  - Followers of Atlas
+	- Took out Team: Collectors
+		- Are gone all ready 
+	- Team: Champions
+		- Haven't been seen yet
+		- had [[Zelkrach]]
+	- Team: Monsters
+		- is [[Merryweather]]'s team 
+		- Supernatural afflictions
+- [[Merryweather]] is in the wooded section
+	- [[Geros]] calls him out and cracks the stone below him with a sword to call him over
+		- Champion challenge him 
+- I rush toward the dragon stealthily
+- [[Jadaya]] influences an audience member 
+	- Implants the thought that she is the dragon slayer
+- [[Merryweather]] sprints towards [[Geros]] 
+	- uses the [[ornate silver sword]] to critical hit him
+- [[Aben]] gets information from the [[Lord of Ravens]]
+	- Was a human at one point
+	- About a thousand years old
+	- Trade secret, not human anymore
+		- Now about 100 ravens
+		- Never died
+			- Has destroyed a past form
+		- Wasn't at [[Old Victoris]] personally
+	- Lord asks for [[Aben]]s name again
+			- Definitely recognizes  the name
+- [[Nemo]] gets an [[eldritch cannon]] to shoot a plushie to the crowd
+	- A [[changeling]]
+		- [[Luther]]
+			- from another team 
+			- takes [[Aben]]s form
+		- comes out of the woods to slice [[Nemo]] 
+		- [[Nemo]] teleports them 90 feet up
+			- they splat
+		- Luther no! The changlings name is [[Luther]]
+- [[Geros]] attacks [[Merryweather]] three times with his great sword
+	- And he crumples and is out of the fight
+- [[Perrin]] sneaks to the dragon and puts the [[immovable rod]] on their foot 
+	- Then I summon a lance and do a whopping 7 damage
+- [[Jadaya]] killed the dragon
+	- She cuts out its eye 
+		- Then asks the crowd if they like what they see
+	- She chopped its heads off
+- [[Alisha]] throws the dragons eye to the other [[Cultists]] 
+- [[Lord of Ravens]] asks [[Aben]] "how did you survive but I didn't?"
+	- Might have known one of his ancestors or something
+		- Says he looks familiar
+	 - At one point the [[Lord of Ravens]] knew a [[Catherine]] Bladeless
+		 - Had deep eyebags like [[Aben]]
+		 - 300 years ago
+			 - Was the royal researcher
+				 - [[Sylas]] and [[Atlas]] were [[King]] and [[Crown]]
+				 - She was working on various magic for the crown
+					 - Was one of the person to get the first [[Citadel]] up and running
+						 - Last they heard was that she didn't have a blood line
+							 - Only an adopted son
+		- [[Lord of Ravens]] ran the [[Colosseum]] even back then
+			- there wasn't a city ([[New Victoris]]) there before
+	- The [[Lord of Ravens]] can fly above the city
+		- Can see everyone through his birds
+- More people are fighting in the woods and [[Nemo]] hears them  
+	- [[Nemo]] pulls [[Belt of Storm Giant Strength]] from the [[black gemstone pendant]]
+	- [[Geros]] attacks a guy in the forest and knocks them out of a tree
+- [[Zelkrach]] has appeared within the city zone
+	- I shoot them with 2 arrows
+- [[Jadaya]] decapitates the last [[Cultists]] 
+	- Then lifts the head above their head and lets the blood rain down
+		- The [[Cultists]] section of the crowd goes silent
+		- the rest of the crowd roars!
+- [[Geros]] is fighting a supernatural monster with pointed ears 
+- [[Alisha]] fights [[Zelkrach]]
+- [[Aben]] asks if the [[Lord of Ravens]] has a [[Tome of Communication]]
+	- Is denied  the number
+	- Asks about the [[Citadel]] 
+		- Some of his ravens were turned to stone
+	- [[Lord of Ravens]] says he works like the gods and their [[epithet]]s 
+		- Can see everything that is happening
+			- Looking at the the [[party]] right now
+	- [[Lord of Ravens]] says of the two royals [[Sylas]] wasn't liked as much
+	- Gets more sparkling pear cider
+- [[Reginald]] sets the forest on fire
+	- Side note
+		- [[Smokey the Owlbear]] 
+			- The mascot to encourage the protection of an area of the [[Forest of Ancient Gods]]
+- [[Geros]] uses the [[Bag of Beans]] to summon a large pyramid
+	- 60 foot square base 
+	- bursting upward
+	- Turns the Forest zone into a Desert zone 
+		- The pyramid is surrounded by dunes of ash
+	- Their own custom undead inside
+		- could be treasure inside
+			- Fire has spread to the inside
+	- [[Geros]] picks up the Cleric and throw them into the entrance of the pyramid
+		- Hear groans of undead and then a low rumbling
+- The [[Lord of Ravens]] apologizes and says he has to leave [[Aben]]
+	- A massive flock of ravens take the shape of a skull to talk to the crowd
+	- Only Five players remain
+		- Head to victors zone
+		- We head down a hallway
+- There can be only one victor
+	- [[Nemo]] casts something that lasts for 10 minutes to stop most types of physical damage
+		- [[Nemo]] attacks [[Geros]]
+		- [[Geros]] returns the favor in 3 blows
+			- 147 damage to [[Nemo]] 
+				- goes down
+					- Into the medical bay
+						- Stable at 1 HP
+	- Alisha bails
+	- I do rope trick
+	- A small raven lands on [[Geros]] shoulder
+		- The Raven whispers, "it is about to begin"
+		- [[Geros]] gets 52 mageburn damage
+			- Progressing his ichor to move faster and do more damage
+	- [[Geros]] forfeits because he is board because his opponents hid
+		- Teleports to the box 
+	- the [[Lord of Ravens]] asks [[Geros]] to put the bird down 
+- I concede to [[Jadaya]] for the culture
+
+Previous Session: [[Session 58]]
+Next Session: [[Session 60]] 

@@ -58,7 +58,7 @@ Current Date 2/21/79
 - [[Alisha]], [[Jadaya]], and I go to the surface mining complex
 	- We see a number of tunnels with brown water streams and panning equipment for gold 
 	- More [[Cultists]]
-		- Rick, Saba, Gundo
+		- [[Rick]], Saba, Gundo
 			- [[Procure]] the red warden killed them to join the cult
 		- [[Geros]] puts them into more crates
 			- [[Geros]] kills Rick

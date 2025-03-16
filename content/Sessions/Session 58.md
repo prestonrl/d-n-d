@@ -1,0 +1,171 @@
+Session Date: March 3, 2025
+Current Date: 2/23/79
+
+A [[hirelings]] Session
+- The [[hirelings]] are in the bottom floor of the [[The Golden Scales]] casino 
+	- [[Biri]] has set up a meeting for a [[Matchmaking]] session
+		- sweet treats are set up by the casino buffet
+- [[Kara]], [[Token]], [[Cintia]] and [[Maria]] enter the room
+- A robot with a hood over their head enter
+	- It is [[EVElyn]] 
+- [[Uther]] has no idea what the [[Matchmaking]] meeting is all about
+	- assumes we are here to scam these people
+- Another person enters wearing bright read robe and a mask
+	- [[Dustin]] of the [[Circle of Embers]] he him, bi, age 24 elf 
+- Attendees:
+	- [[Kara]]
+	- [[Token]]
+	- [[Cintia]] 
+	- [[Dustin]]
+	- [[Elias]] 
+	- [[Maria]] 
+	- [[Eve]] 
+	- [[Norman]]  
+	- [[Rime]]
+	- [[Khione]] 
+	- [[Beatrice]] 
+	- [[Keith]] 
+	- [[Miss Crumpet]] 
+	- [[Cassiopeia]]
+	- [[Tyler]] 
+	- [[Wildrow]]
+	- [[Tellotok]] 
+	- [[Edith]] 
+	- [[Crust]]
+	- [[Raine Goldheart]]
+- [[Biri]] and [[Basil]] begin the interviewing process as more and more people join the meeting
+	 - [[Kara]]
+		 - had troubled experience on the road
+			 - opened a bakery
+			 - missing her left arm
+				 - "don't worry i'm all right"
+			- Bandits have not worked out for her
+			- Currently with a prisoner
+				- was in the dungeon up north
+					- got attacked by dragons 
+			- Longest relationship 3 weeks
+				- Wants a stable job person 
+			- Overestimates what she can carry with one hand 
+	- [[Maria]]
+		- So much behind her eyes
+		- Looking for a partner who is good at keeping secrets
+		- [[Ted]] asks if her old partner was [[Sebastian Stone]]
+			- says we shouldn’t know the name 
+				- and no
+		- Likes the rain in [[Britain]]
+	- [[Sable]] 
+		- comes down and says its their birthday
+			- 18th
+		- Currently on parole for stealing a lot of money
+		- She stole from the Hightowers. 
+	- [[Elias]]
+		- went to [[Harker University]]
+		- not experienced in dating
+		- Interested in books 
+	- [[Token]]
+		- owner of a new manner in the middle of the [[Crucible]]
+			- [[Wilburs Vacation Home]]
+		- sometimes gets lonely. 
+		- Ideal partner is a friend
+		- 2 1/2 feet tall
+		- has a large uncut diamond on a ring for engagement
+			- when put in fire it says "Made you look"
+	- [[Khione]]
+		- Came to the meeting because she was board
+		- She likes fluffy things, and hats
+			- should be partnered with [[Sable]] 
+	- [[Norman]]
+		- "when I think of the future it is completely dark."
+		- Prestige himself every single time. Creates life every single day. 
+		- Partner needs to be okay with skeletons
+	- [[EVElyn]] 
+		- enjoys numbers and information
+		- "long walks under... no, across the beach."
+	- [[Beatrice]] walks in 
+		- [[Ted]] immediately puts his name in to be matched
+	- [[Dustin]]
+		- likes wood burning
+		- Had a strange relationship
+			- died in front of her
+				- She doesn't know he's back. 
+			- Looking to move on, long term
+		- Likes taller and stronger side
+		- Self identified expert in cuddling
+	- [[Rime]]
+		 - wants someone to spend the end of the world with
+		 - Type is nihilistic
+	- [[Miss Crumpet]]
+		- never been married
+		- doesn't have a type
+		- Last relationship was before she was into magic-y stuff
+		- they turned into a toad.
+			- "toads aren't great for physical and emotional support"
+	- [[Cassiopeia]]
+		- [[changeling]] maid
+		- tidy, good
+		- Likes fancy food
+		- No nobles
+			- boring for their taste 
+	- [[Wildrow]] 
+		- head caretaker of an [[orphanage]] up to the north in [[Dawntrail]]
+	- [[Tyler]] 
+		- near death experience caused him to want love and start a new chapter
+		- Has been focused on business
+			- looking to spread out a bit
+		- Red coat
+		- thick glasses
+	- [[Tellotok]] 
+		- mushroom gardener
+			- including the intense kind
+		- Drug dealer
+		- Looking for something new
+			- Says the district is dull
+				- wants to move out of [[Tarion]]
+	 - [[Raine Goldheart]] 
+		 - fiancé recently passed away
+			 - hoping to rekindle what was there
+		- Met in bedrock up north and dragons attacked
+		- [[Rick]] Goldheart
+			- Was the cultist [[Rick]] in the [[Bedrock Dungeon]]
+- [[Biri]] puts the attendees in pairs at tables to check for chemistry
+	- Pairings
+		- [[Elias]] with [[Maria]] 
+			- not working out well
+		- [[Eve]] with [[Norman]] 
+			- [[Norman]] is answering like this is normal 
+		- [[Kara]] and [[Token]] 
+			- [[Token]] pulls out a prosthetic arm and gives it to Kara
+			- doing pretty well 
+		- [[Ted]] with [[Beatrice]] 
+			- [[Beatrice]] lets him know that [[Reginald]] is dead 
+			- they making out aggressively in the back room
+		- [[Sable]] and [[Khione]]
+		- [[Dustin]] and [[Rime]] 
+			- Plutonic
+		- [[Edith]] and [[Rime]]
+			- cold and distant
+			- not working out
+		 - [[Miss Crumpet]] and [[Wildrow]] 
+			 - going well 
+		- [[Tellotok]] with [[Cassiopeia]] 
+			- going quite well
+	- Revised Parings
+		- [[Cintia]] and [[Elias]] 
+			- working better 
+		- [[Edith]] and [[Tyler]] 
+			- don't hit it off either
+- [[Uther]] is scamming [[Rime]] with the dice game 
+	- [[Dustin]] got scammed by [[Uther]] for 5 gold
+- [[Biri]] gives the tables pastries
+	- [[Token]] tipped over 200 gold and has left with [[Kara]]
+- There is a slow dance to close out the event
+- [[Biri]] gets her money
+
+See attached: [[The Ships]]
+
+Previous Session: [[Session 57]]
+Next Session: [[Session 59]] 
+
+
+
+

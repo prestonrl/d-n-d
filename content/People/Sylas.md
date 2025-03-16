@@ -41,3 +41,9 @@ Has a [[partner]] that [[Perrin]] has met (its [[Atlas]])
 Made eye contact with [[Perrin]] as he died at the party.
 
 Confirmed to be bisexual and married to [[Atlas]] 
+
+9 feet tall
+
+[[Seraphina]] cracked open his stasis chamber in the [[North Facility]]
+
+Is a [[necromancer]]

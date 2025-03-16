@@ -1,0 +1,112 @@
+Current Date 2/22/79
+
+A [[hirelings]] session
+
+- It is the day after the [[hirelings]] took over the [[Twinkle and Roll Casino]]
+	- The Casino is being remodeled
+		- [[Bruk]] has renamed the casino
+			- [[The Golden Scales]] is the new name
+		- [[The Scales of Luck]] is a new game that [[Bruk]] is adding to the casino
+			- Whoever matches the weights wins
+			- Three scales
+			- Go over the weight you loose 
+		- [[Bruk]] hired the two [[Tabaxi]] that were fired before
+			- Also hired one of the of the Goliath's bouncers 
+-  [[Uther]] looks for coins and can't find anything
+- [[Biri]] finds a jar with [[black goo]] at the bottom
+- [[Siri]] finds a section of the construction with problems in the support and foundation
+	- [[Bruk]] puts her in charge and she starts bossing people around
+	- [[Basil]] finds a loose tile in the foundation
+		- [[Siri]] and the construction workers pull up the tile
+			- Find stairs to a secret halls
+				- [[Siri]] has super bright led lights 
+				- Find room with shelves with jars on them
+					- In the middle of the room there is a basin filled with [[black goo]]
+						- The [[umbral divide]]
+							- [[dark divide]]
+					- Might be an alchemists workshop
+- [[Jeremy]], one of the construction workers is outside in the streets fighting something
+	- [[Uther]] runs outside to see him decapitate a skeleton
+		- [[Jeremy]] asks what that is 
+	- [[Uther]] sees a rune down an ally of necromancy
+		- What summoned the [[necromancy skeleton]] 
+- [[Biri]] and [[Bruk]] go to the basement to plan
+	- See a green drop from a pipe hit the floor and disappear 
+- [[Basil]] finds a shelf can move in the secret stairway
+	- Reveals a much larger room behind
+		- [[Necromancer Lab]]
+			- a deeply weird and arcane workshop
+				- Bones
+				- runes stones
+				- bits and pieces
+			- [[Siri]] claims this place
+				- Workshop is eerily similar to [[Aben]]'s [[Laboratory]]
+					- similar devices
+			- On back desk are two corpses 
+		- Looks like it was used very recently
+			- As recently as yesterday
+- [[Bruk]] has a plumber check out the green drip from the basement pipe
+	- [[Bruk]] and [[Wilbur]] communicate with a [[Tome of Communication]] 
+- [[Norman]] walks in and says he likes what we have done with the place 
+	- [[Norman]]'s blood vial that [[Siri]] collected is now ash 
+	- [[Norman]] claims he is real
+		- doesn't know who that was that [[Wilbur]] killed yesterday
+		- [[Wilbur]] comes
+			- Casts a spell
+				- disintegrate
+					- it destroys [[Norman]] 
+- [[Wilbur]] finds the skeleton [[Jeremy]] killed came from the [[Necromancer Lab]] under the casino 
+- [[Wilbur]] moves the jar of goo in the rune circle
+	- loud crack 
+		- [[Wilbur]] is gone
+			- [[Bruk]] writes to [[Wilbur]]
+				- [[Wilbur]] says, "that hurt"
+					- He is back at his manor  [[Wilburs Vacation Home]]
+						- exhausted 
+						- can't move
+			- Fancy signature
+				- [[Token]]: Transcribing for wilber
+- We make our way to the mansion, [[Wilburs Vacation Home]]
+	- [[Token]]
+		- Cave goblin
+		- white eyes
+		- spectacles
+		- butler suit
+	- Drags the giant door open so we can get in
+	- At least two dozen cave goblins working here
+		- [[Biri]] passes out [[Matchmaking]] cards
+	- [[Wilbur]] is laying on the bed 
+		- [[Siri]] takes his temperature
+			- Around 75 degrees
+		- [[Wilbur]] described his experience as being combusted into [[Necrotic Energy]] and then waking up here
+			- [[Token]] was not surprised to see them 
+- We make our way to the [[Weirdatorium]] because of [[Norman]] 
+	- There is now a single door
+		- Totally and completely locked
+			- We try stuff
+				- [[Bruk]] draws a hole in the door with magic pigment
+	- We get into a dark giant room 200 ft diameter
+		- At the very top is a tiny wooden platform with the door
+		- 1200 ft to the top
+			- [[Biri]] who has wings now as her magic item brings [[Siri]] and [[Wilbur]] 
+				- [[Siri]] fell
+			- [[Biri]] goes up a spiral staircase to the top level
+	- [[Uther]] is riding his flightless mount in circles
+		- [[Feather of Diatryma Summoning]]
+		- With the jar of [[black goo]]
+			- [[Siri]] falls and [[Uther]] attempt to catch them
+			- We both have 1 HP
+			- [[Uther]] now has a chipped beak and speaks with whistle
+	- [[Norman]] is at the top reading newspaper
+		- [[Wilbur]] lunges and misses and falls out the window
+			- [[Wilbur]] splats and is dead
+				- 447 damage
+			- [[Siri]] takes a sample of the mush
+	- [[Bruk]] pushes [[Norman]] out the window, who also dies
+		- The deed to the [[Weirdatorium]] falls into our hands
+	- We start heading to [[Wilbur]]'s mansion
+- [[Norbur]] will be made
+
+
+Previous Session: [[Session 54]]
+Next Session: [[Session 56]]

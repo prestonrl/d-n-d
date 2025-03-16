@@ -108,4 +108,4 @@ Current Date 2/21/79
 - Thin crack in the glass tank holding [[Sylas]]
 	
 Previous Session: [[Session 52]]
-Next Session: [[Session 54]]
+Next Session: [[Session 54]] 

@@ -1,0 +1,105 @@
+Current Date 2/21/79
+
+- [[Aben]] spontaneously collapses into the dust
+	- We are in the graveyard district
+		- [[Resting Grounds]] 
+		- Large mausoleums in the distance for large families
+			- Most of the high upper class are not here
+				- They don't die
+		- [[Nemo]] finds the plot of land he [[Reginald]] is supposed to be buried
+			- [[Geros]] tries to carve his death date
+			- [[Nemo]] blasts the tombstone away
+		- [[Geros]] goes to loot the graves
+			- I try to persuade him not to
+				- [[Nemo]] does better to stop me stopping him
+- We follow [[Mina]] to a gate in the center of the district
+	- [[Nemo]] burns the [[Hightowers]] section of the graveyard and leaves it completely black
+		- [[Nemo]] leave black footprints in his wake
+- We pass the [[Colosseum]] and hear the roar of crowds 
+	- [[Nemo]] goes to to his luxury box there
+		 - [[Nemo]] caused the guard to shit himself so he could get into the box
+	 - 7 people are battling it out in the arena 
+		 - [[Jadaya]] sees one guy she knew in the [[Forest of Ancient Gods]] 
+			 - that she thinks is really hot
+	- [[Geros]] throws [[Aben]]'s passed out body to [[Alisha]] who doges it
+	- [[Geros]] jumps into the arena and throws [[moss]] cubes down
+		- [[Alisha]] ties to stop him
+			- tries to tackle him
+				- then yells get out of the way to those around
+		- [[Geros]] snaps his fingers and a [[pegasus]] appears under him and he flies to the arena 
+			- Three or four ravens/corvids grab onto [[Geros]] as they make their way over the wall
+				- They use a backup and make [[Geros]] vision go black while they teleport
+					- They disappear and the [[pegasus]] remains flapping confusedly
+	- [[Geros]] and [[Alisha]] are in the office of the manager of the [[Colosseum]]
+		- [[Lord of Ravens]]
+			- Long unkempt black hair
+			- black tunic
+			- silver mask
+				- eyes blacked out
+					- Lord of Raven's 
+			- He is annoyed at the raven messages from the hirelings
+			- Leader of the [[Colosseum]] Guild 
+			- Very familiar with [[Alisha]] and knows her last name
+			- He has seen the [[Geros]] [[arcane radiation]] poisoning before
+				- He has the same poisoning 
+			- All of the ravens are him
+	- He sends ravens for the [[party]]
+		- [[Nemo]] and I successfully save and don't get teleported 
+			- The ravens then teleport us to the rest of the party
+		- We sign up to fight for the [[Colosseum]] 
+			- to get the support of the [[Colosseum Guild]] 
+				- in the war in the city
+			- We are going to fight a group of the [[Circle of Embers]] 
+				- [[Nemo]] promises [[Alisha]] to not work against us 
+				- [[Nemo]] is on par in rank with the [[Archdruid]]s 
+- We go to the barracks and take a long rest
+- Current Date 2/22/79
+- We go to the [[Colosseum]] arena for the fight
+	- I roll up with 5 of my [[water books]] because no magic items or weapons are there
+		- I also bring my grappling hook
+	- We have the choice of biome to spawn into 
+	- The officiator gives as a [[black gemstone pendant]] with a spark at the center
+		- The more support from the crowd the more energy we get 
+			- and can create items with it
+- We are teleported into the wooded area of the arena as the fight begins
+	- huge trees
+	- [[Geros]] trumpets
+	- I go to the tree
+		- To the right is the victors zone
+			- large temple
+		- The city zone is also to our right  
+		- The center is a massive flat stone area
+			- Tons of chest in the center
+	- 4 other teams 
+	- [[Jadaya]] makes seasoned bugs
+		- Gives 5 temporary hit points when eating
+			- Lasts 8 hours
+	- [[Geros]] goes to the center opens a chest
+		- Gets [[Wand of Wonder]]
+			- Thin gold rod with gum balls at the end 
+		- Another team hits [[Geros]]
+			- 3 different arrow hit 
+	- I give the [[bush disguise]]  back to [[Jadaya]]
+		- I use the grabbling hook to get closer to [[Geros]] 
+			- [[Geros]]'s mount, a giant boar attacks the guy with the longbow
+				- I go for the longbow
+					- I snatch it up with 10 arrows
+		- [[Geros]] puts an unconscious lady in the chest
+			- She screams
+		- [[Geros]] opens another chest
+			- gets [[Bag of Beans]]
+				- There is now a 30 foot beer geyser 
+	- [[Jadaya]] opens a chest
+		- [[Cloak of Owlbear]]
+			- 5 feet flying speed
+	- I open a chest and get an [[immovable rod]] 
+	- The lady in the chest screams
+		- [[Nemo]] lights it on fire
+		- I open the chest
+			- She crawls out and I see a green glint in her eyes before she dies
+	- [[Geros]] beans make a chaotic evil tree ent spawn to the city zone where the cultists are 
+		- In the distance we hear dragons fire through the city
+			- [[Geros]] casts leaves on the dragon
+
+Previous Session: [[Session 56]]
+Next Session: [[Session 58]] 

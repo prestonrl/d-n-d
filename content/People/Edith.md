@@ -18,3 +18,7 @@ Met at the [[Hightower Estate]] dinner with [[Atlas]] ([[Archdruid]]) and [[Ches
 
 Was reading Romeo and Juliet
 
+Human
+She/her
+Bi
+

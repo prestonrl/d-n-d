@@ -7,4 +7,5 @@ Have black blood
 [[Daefaren]]'s investigator from the [[Dusk Division]] of the  [[Golden Vault]] 
 
 [[Jadaya]] and [[Perrin]] replaced by changlings of them with their complete memories for the entirety of session 37
+- [[Cassiopeia]]
 

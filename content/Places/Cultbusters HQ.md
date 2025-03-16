@@ -5,5 +5,7 @@ Originally the [[Historical Society]] of [[Tarion]] in [[New Victoris]]
 Development  plans:
 	[[Alisha]]: rooftop gardens 
 	[[Reginald]]: archeological lab
-	[[Perrin]]: library 
+	[[Perrin]]: [[Library HQ ]]
 	[[Geros]]: training facility 
+
+Ran by the [[hirelings]]

@@ -8,5 +8,8 @@ Engaged to [[Seraphina]]
 Raised by [[Miss Crumpet]]
 Father is [[Chester]]
 
+Consumed by [[Atlas]]'s fire at the [[Hightower Estate]] and died
+
+Given chance at life by [[New Flame]] and came back as [[Nemo]] 
 
 A human played by Jacob Varon
