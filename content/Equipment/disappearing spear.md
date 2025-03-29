@@ -1,0 +1,1 @@
+[[Luven]]'s spear that can disappear and reappear on a bonus action in his hand.

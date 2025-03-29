@@ -1,0 +1,1 @@
+[[Drada]]'s magical item for King [[Percival]]

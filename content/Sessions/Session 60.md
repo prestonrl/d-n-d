@@ -1,0 +1,446 @@
+~~One~~ Shot DM'd by Demetrius 
+
+Set before [[Atlas]] took power.
+
+The [[five Civil Leaders]] of [[New Victoris]] will be attending one of the most lavish and expensive balls amidst the most tumultuous time in the cities history.
+
+[[New Victoris Chief of Intelligence]] - [[Jean]]
+[[General of the New Victoris National Guard]] - [[Mermia]]
+[[Head of Artiface ]] - [[Drada]]
+[[Head of the Victorian Chronicle]] - [[Aerk]]
+[[Master of Trade]] - [[Luven]]
+
+- In recent months a new [[radicle group]] has risen in [[New Victoris]]. [[Luven]] has been dealing with a lot.
+	- Getting all the wrong shipments
+		- Instead of a crate full of art, a crate of bananas is delivered
+	- Last week the [[Colossus District]] was rocked with an explosion
+		- Leveled a district block
+			- Killed 1000ish people
+				- Mainly warehouse workers
+		- Targeted a warehouse filled with trade
+			- Just the usual
+				- Fine art
+				- Weapons and armor from the [[Mumbo District]]
+	- Has cost [[Luven]] and others a lot of money
+	- Other senators are trying to get more control and more guards
+- Because of this a big ball is being thrown to release stress and show that things are okay
+	- The [[five Civil Leaders]] were asked to bring a wondrous magic item to wow the King [[Percival]]
+		- [[Luven]] prepares the [[Deck of Several Things]] to bring to the showcase
+
+- [[Pyrite]] District
+	- Military district
+		- Half military 
+		- Half vineyards
+	- Military camp is used to train guards
+		- surrounded by lush hills with vineyards and grapes
+	- [[Mermia]] sits in an office
+		- simplistic office
+		- comes from the mountains down south
+		- Is a [[Goliath]] 
+			- they form their own tribes
+		- Has a few medals and plaques 
+			- Champion of the [[Colosseum]]
+				- Once won the [[Colosseum]]
+		- 6 ft 8 goliath
+			- Cerulean blue skin
+			- Icy blue hair 
+			- Gold eyes
+			- Has beads 
+			- Adorned armor with symbols of her tribe
+		- She writes with a fine quill on paper
+			- Lots of reports lately
+				- Radical activity
+					- Flaky troop movements
+					- Troops have been bombed
+		- Hears a very loud 3 knocks on a door
+			- She says, "come in"
+				- A very tall man [[Brawmish]] Stonebreaker
+					- Second in command
+					- Another goliath
+					- bald
+					- scars
+				- [[Brawmish]] informs on the riots at the [[Colossus Trading Post]]
+					- They are requesting more men
+					- The [[Sapphire District]] has been destroyed
+			- [[Mermia]] has sent communication birds
+				- No information from soldiers at the front
+				- Putting out fires and keeping things under control
+			- Says it is time to go to the district to see what is going on
+				- [[Brawmish]] reminds [[Mermia]] that the king demands that she is at the party tonight
+					- King has said some harsh things if they were not to arrive
+					- [[Eldrin]] will be contacted and they will go to the [[Colossus District]]
+		- Hears far off fireworks starting at the [[New Victoris Palace]]
+			- The party is starting to ramp up
+- [[apex of the world]]
+	- Absolutely massive buildings
+	- Vibrant brick red building with glass sides
+		- [[Victorian Chronicle]]
+			- Rows of scribes
+			- Still with outbursts of people writing
+				- editors yelling
+			- hubbub of a newsroom
+	- [[Aerk]]
+		- He is sitting at his desk
+			- Playing with a pen
+		- Thinking about the oncoming party
+			- Cork board on the wall with people to keep tabs on
+				- For interest and scoops 
+					- Lots of yarn and things
+					- [[Urmas]] Bottlehood appears on the board
+		- Hears lots of talking outside the door
+			- Hear a quick little fine knock
+				- Door burst open
+					- 3 people yell at him
+					- They then yell at each other
+					- [[Oswald]]
+						- [[Kenku]]
+						- long beak
+						- Spectacles
+						- Elaborate red colored bard robes
+					- [[Edgar]] Whitmore
+						- Shorter human
+						- mustache
+						- could be mistaken for a dwarf
+						- Stogie cigar in mouth
+							- (J. Jonah Jameson type)
+					- [[Lilith]] Vass
+						- [[Tiefling]] girl
+						- green eyes
+						- young
+						- Wearing simple bard robes
+				- They all stop and stare at [[Aerk]]
+					- He asks what the ruckus is about
+						- [[Edgar]] says they need a headline
+							- Pushing the paper tomorrow 
+								- "Bring me pictures of [[Bailey]] the spider-horse"
+							- Headline option: [[New Victoris]] [[Breadbasket]] gets overdone
+							- People want to know about the upcoming party
+								- King [[Percival]] ballroom blitz
+									- We can get it done
+										- Storms out hand in the air 
+											- Says run it!
+					- [[Lilith]] 
+						- Not a fan of [[Edgar]]'s yelling
+						- Knows he is an editor and not a reporter
+							- but overheard something and wants to investigate
+								- At the [[Sisyphus Tap]]
+									- Heard a hot scoop about a [[radicle group]] meeting in the lower [[Dawntrail]] district
+						- Gets permission to look into it
+					- [[Oswald]]
+						- Speaking in bunch of different voices and tones
+							- Guard wont let any reporters into the ball yet
+								- security wont let them in
+								- They say the venue is full
+							- Asks about sneaking people in
+								- [[Aerk]] says we always fine a way don't we
+									- Understands, says I will get my report to you tomorrow
+			- [[Cape of Mountebank ]]has arrived
+				- Can hear the fireworks 
+- [[Mumbo]] District
+	- Filled with industrial heat and smoke
+	- [[Drada]] is in the district
+		- Going over documents
+			- Blueprints of chainmail armor
+				- Looks iron man-esque
+					- Immaculate 
+			- formulas
+		- She is nodding off
+	- She is a [[Drow]]
+		- Middle aged
+		- Older looking from working in such heat
+			- Wears a suit
+			- With thick leather apron over it
+	- Falling asleep
+		- Tapped on the shoulder to wake up
+			- Her [[homunculus]] 
+				- A little wooden fairy
+					- Faint purple light through the wood
+					- lights from the eyes
+			- Says, "someone is here"
+	- Behind her the heavy metal door opens
+		- [[Wollknot]] a shorter [[Harengon]] enters
+			- Rabbit person
+				- Hair used to be brown but they are greying
+				- Could use a cain but doesn't
+			- It is [[Drada]]'s assistant
+				- Holding a beautifully carved cube that looks like a Jack-in-the-box
+					- [[Cube of Summoning]]
+				- Also holding a cup of coffee
+					- Time to head to the party
+						- Will come with her and bring the cube
+				- The coffee helps her wake up
+					- Can hear fireworks
+- [[Master of Trade]]
+	- [[Colossus Trading Post]]
+		- Swirl of tents
+		- Shimmering colors of fabrics
+		- Bartering
+		- loud and lively
+	- [[Luven]]
+		- [[firbolg]]
+			- Bovine like species
+		-  Tan dirty blonde hair and beard
+		- Looks vibrant and alive
+		- Wears fine robe
+		- sits on balcony within the [[Mutid Palace]] overlooking the city
+			-  Sanstone pillars
+			- Lots of domed roofs
+			- Open free-formed rooms
+			- art on the walls
+		- 3 blocks down their is a stain of ash and rubble
+			- The [[Sapphire District]] has been burnt down
+				- Can see guards and riots nearby
+	- Starts to feel sick
+		- Stomach churns
+			- Feels something calling to him
+				- [[Genie]] 
+					- The [[lamp]] is on [[Luven]]'s waist
+						- Corroded with [[shadowfell]] energy
+			- Want to communicate with it
+	- 3 knock on the door that take [[Luven]] out of it it
+		- put [[lamp]] back
+		- [[Ticekin]] Storeback
+			- [[dwarf]]
+				- Pointed goatee with a small jewel
+				- Fine clothes 
+				- Golden teeth
+				- Jewelry
+				- long braided hair down to the floor
+				- Scared eye 
+					- Replaced with an amethyst
+						- Within the gem is is a white pupil
+							- Can see out of it
+					- An Invention from the [[Crucible]]
+				- Puff of curly hair trying to be contained
+- The ball!
+	- The sun is setting over the horizon of the engraved [[New Victoris Palace]]
+		- coming over the bridge
+			- Huge banner line the walls with the crest of the city
+			- 40 foot tall stain glass windows
+			- huge door and courtyard
+				- Owlbears and Pegasus
+		- Beautiful and intricate
+		- Thaumaturgy is used to speak out name and title 
+			- Most of the names [[Luven]] doesn't recognize
+			- People and reporters have gotten to the courtyard 
+		- The people exiting are highly drunk
+	- We barely know [[Jean]] who joins us now
+		- Not announced at all
+			- We don't notice him
+			- Kind of scares us
+			- [[New Victoris Chief of Intelligence]]
+		- Appearance
+			- Also a [[Drow]]
+			- Black and dark brown spy leather
+			- Light armor padding
+			- Slender build
+			- Right eye black eye , white iris
+			- left eye replaced with some sensor
+				- Can see more spectrums of light
+			- Shimmering golden tattoos
+				- work of someone in the [[Crucible]]
+	- We all collect within the entrance hall
+		- Endless hall
+			- almost feels sick how far it goes
+			- inside just as beautiful as the outside
+		- [[Luven]] talks with [[Mermia]]
+			- asks about the request for more guards
+				- She says she sent people to look into it
+		- [[Drada]] 's appearance
+			- reddish brown plate armor
+			- Crafted tie with diamonds
+				- Was her fathers
+			- Cheep jewelry
+			- Ton of piercings in the ears
+			- Slicked back hair, little oily
+		- [[Aerk]] is wearing his feathers
+			- nice tailor made tuxedo 
+			- Gold cufflinks 
+			- Gold cain twirling around
+				- Medium sized cain
+				- [[Drada]] can sense the magic coming from it
+				- slightly electric
+			- Wears a very nice top hat
+- We get to the end of the hall
+	- Giant door
+		- A dopey red haired guard waits for us
+			- The guard salutes to the general [[Mermia]]
+			- informs us the table is to collect the weaponry 
+				- [[Mermia]] complains about the cabinets not being delivered
+			- [[Luven]] provides the [[disappearing spear]] to the table
+				- [[Mermia]] tried to insult [[Luven]] who shrugs it off
+- We enter and hear the loudest music and partying and revelry 
+	- crowd of people
+		- deafening and overstimulating 
+	- Cool champagne
+		- dragonfruit-esque
+		- tower of glasses
+	- Buffet of food
+	- huge chandelier 
+		- 50 ft down
+		- 40 feet wide
+		- Carved iron and gold
+	- Huge windows come down and stop at the wall framing the king and queen
+	- Retainer to the crown approaches the group to inform us the king would like to see us
+		- Gnome
+		- Bald
+		- goatee trimmed to perfection
+	- We pass various Senators
+		- [[Eggmond]]
+			- [[half elf]]
+			- Senator of Great [[Britain]]
+		- [[Waylon]]  
+			- Senator of [[Neo Nova Scotia]]
+			- human
+		- [[Ori]]
+			- [[Earth Genasi]]
+				- Skin and body made of marble
+					- Looks like a statue
+			- Amazingly beautiful 
+			- Senator of [[Dawntrail]]
+		- [[Eggmond]] and [[Waylon]] are arguing
+		- [[Urmas]] 
+			- Senator of [[Tarion]] Slums
+			- [[Dwarf]]
+		- [[Fostid]] 
+			- [[Orc]]
+			- Pale green skin
+			- Senator of [[Mumbo]] district
+		- [[Minru]]
+			- Senator of [[northern district of New Victoris]]
+			- A Karen
+			- Runs most of the banks in the city
+		- [[Ricchar]] 
+			- Senator of the [[Model]] district
+			- [[Tiefling]] Male
+			- red skin
+			- older
+			- whitish grey hair long down the back
+	- A crowd has gathered around someone we can't see	
+- King [[Percival]] Very large man
+	- Human
+		- Could be half giant in looks only
+		- Big belly and filled out in arms
+		- Big mitts hand
+	- Holds a stein
+		- Sword held high long blade on it
+	- A little drunk
+		- Sloshing ale cup
+		- Joking and talking 
+	- Sits on a simple beautiful throne
+	- Is wearing a crown
+- [[Percival]]'s wife is a small woman 
+	- Lady Queen [[Cressida]]
+		- Human
+		- Blonde tight woven bun
+		- Amber colored lace dress
+			- Slightly revealing clothes
+		- Very kept together
+		- Pissed off look
+- [[Aldrich]] is the head/court wizard
+	- Blind in his left eye
+		- Fully white eye
+	- Standing with hands in robe
+	- Wizard robe
+	- Belt
+	- Not much skin showing
+	- gloves and pouch
+	- Has a leather strap container for crystal ball
+	- Court wizard
+	- Wears a circlet of adamantine 
+		- opal 
+		- hummingbird feather in the middle
+	- Hair twisting braid of an infinite loop
+	- Ritual caster
+		- [[Luven]] knows him trading some chalks and ash
+- King [[Percival]] says, "wonderful you are all here" and lets out loud booming laugh
+	- Asks for the presentation of our magic items
+		-  Magic Items
+			- [[Jean]]
+				- Chime that breaks after being run 9 times
+			- [[Luven]]
+				- [[Deck of Several Things]]
+			- [[Drada]]
+				- Cube of Summoning
+					- Plays music before a creature can be summoned
+			- [[Aerk]]
+				- [[Cape of Mountebank]]
+					- Opens dimension door
+					- Flys around the chandelier 
+			- [[Mermia]]
+				- Flicks her shield and it floats around her in a protective state
+					- Asks for [[Jean]] to throw a knife
+						- He is so advanced it gets through the shield and hits her arm
+							- [[Mermia]] says she is still working on it
+- [[Pallow Brother Band]] playing the orchestra
+	- Can see fireworks over the North District and the city lights
+- [[Urmas]] is sloshed 
+	-  No one likes them
+		- Rancid
+		- Has many mistresses
+		- puts all money to himself
+- [[Fostid]]
+	- Presents himself as a family man
+	- southern drawl
+	- Funds the city and guard
+- [[Wilbur]] the senator is there eating
+- [[Hycis]]
+	- tall and thin
+	- billowing dress
+	- Everything is gold
+	- calm presence
+	- high arcane 
+	- knowledgeable 
+- [[Aerk]] is going to the staff room
+- [[Jean]] heads to the densest part of the crowd
+	- In the center is the most normal looking guy
+		- [[Norman]]
+			- Plain tunic
+			- Clean shaven
+			- Everyone is enamored 
+- Senator [[Tulula]] 
+	- [[Desmond National Park]] senator
+- [[Vishan]] 
+	- Senator of [[Basket]] district
+- [[Luven]] approaches the king about aid
+	- The king [[Percival]] sinks and puts his hands together
+	- The queen [[Cressida]] immediately takes over
+		- [[Luven]] uses his charisma with the help of his patron [[Genie]]
+			- Some dark sand drifts from [[Luven]]'s lamp
+				- She softens a little bit
+					- She is charmed and says of course we will provide aid
+					- she is cheery and takes a drink after
+		- [[Luven]] steps away reassured to join the party
+- At he buffet [[Luven]] gets Cracken meat for 50 gold
+- [[Drada]] tries to flirt
+- [[Minru]] and [[Ricchar]] are being secretive talking quietly together
+	- [[Ricchar]] is not as skilled at being sneaky
+		-  [[Tiefling]] 
+			- Devil looking
+		- He is the leader of the history district
+		- Bottle village
+		- First village for the city
+	- [[Jean]] investigates and overhears:
+			- "Have you heard Lord [[Chester]] Hightower took everything and left the city without a word
+			- Odd he isn't attending	
+	- [[Minru]] is the banker
+		- Talking a lot about [[Chester]]
+		- shushes [[Ricchar]] and tells him to be quiet and vigilant
+	- [[Minru]] tries to break a tail and exits the party
+- [[Aerk]] went into the serving quarters 
+	- Investigates where the weapons were taken
+		- Castle is less beautiful back here, more backstage
+		- Can smell the kitchen
+	- She sneak through to the guards quarter
+		- They had a keg that has run dry
+		- At the end of the hall a bared door
+			- A Minotaur is wearing the crowns personal guard plate armor
+				- A large small dwarf is arm wrestling him
+					- [[Aerk]] causes chaos by betting money on the match
+						- [[Aerk]] grabs the keys from the dwarf
+	- Finds a room with wooden shelves with the fabric crates all the weapons were put in
+		- He finds his staff
+
+
+Previous Session: [[Session 59]]
+Next Session: [[Session 61]] 

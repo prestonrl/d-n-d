@@ -1,4 +1,6 @@
 The manager of the [[Colosseum]]
+Senator of the [[Colosseum]] District of [[New Victoris]]
+
 Leader of the [[Colosseum Guild]]
 - Long unkempt black hair
 - black tunic

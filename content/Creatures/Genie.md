@@ -1,0 +1,1 @@
+a type of mythical creature that only spoken about in legends, from a far off land swallowed by time and calamity [[Zakhara]].
