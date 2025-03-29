@@ -1,4 +1,5 @@
 Owner of [[Wilbur's Ward]] and [[Wilburs Vacation Home]] 
+Senator of the [[Maw]] District of [[New Victoris]]
 
 A small white cave [[goblin]] with 
  - milky white eyes

@@ -19,3 +19,7 @@ Prestiges himself every time (maybe every single day)
 
 Says a partner would need to be okay with skeletons
 
+Brown hair
+Brown tunic
+Personally invited by the King [[Percival]] to the party
+

@@ -1,0 +1,1 @@
+spell casters that have made a pact with an entity

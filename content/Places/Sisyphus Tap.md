@@ -1,0 +1,1 @@
+Where [[Lilith]] overheard details from the [[radicle group]] about a meeting in the lower [[Dawntrail]] and asks [[Aerk]] to investigate further
